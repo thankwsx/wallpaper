@@ -24,7 +24,9 @@
 
 > 当之无愧北戴河，新一代的避暑山庄。
 
-唐山
+唐山 http://www.lvmama.com/lvyou/photo/d-tangshanqingdongling102947.html
+
+> 本来想找个大地震的，后来放弃了，还是找个历史遗迹吧，同时风景还可以的，清东陵。
 
 廊坊
 

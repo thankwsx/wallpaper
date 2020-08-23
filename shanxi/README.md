@@ -20,7 +20,9 @@
 
 > 没想到五台山是在忻州，传说康熙他爸就在这里出家，截取黛螺顶一张图片作为墙纸。
 
-吕梁
+吕梁 http://wlt.shanxi.gov.cn/zxw/zh/webpage/theme/yellowriver/huanghediyiwan.shtml
+
+> 革命老区，选取黄河天下第一弯。黄河的景点还有很多。
 
 晋中
 

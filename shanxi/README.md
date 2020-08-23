@@ -22,7 +22,7 @@
 
 吕梁 http://wlt.shanxi.gov.cn/zxw/zh/webpage/theme/yellowriver/huanghediyiwan.shtml
 
-> 革命老区，选取黄河天下第一弯。黄河的景点还有很多。
+> 革命老区，选取黄河天下第一弯。黄河的景点还有很多。图片里写的永和乾坤湾也是一处黄河景点，有点分不清。
 
 晋中
 

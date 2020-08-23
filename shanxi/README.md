@@ -32,12 +32,16 @@
 
 > 啊，娘子关，中国科幻的圣地。大刘。
 
-长治
+长治 https://zhuanlan.zhihu.com/p/50876898
 
-> 
+> 挂壁公路比较吸引我。
+ 
+晋城 http://www.mafengwo.cn/gonglve/ziyouxing/44608.html
 
-晋城
+> 古老的城市，有一位皇帝的老师，且皇帝也居住过此处，皇城相府由此而来。
 
-临汾
+临汾 http://k.sina.com.cn/article_1029374230_p3d5b011602700ftt0.html?from=travel
+
+> 山西的又一处黄河景点，壶口瀑布。
 
 运城

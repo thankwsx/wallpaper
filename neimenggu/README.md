@@ -35,6 +35,9 @@ http://www.mafengwo.cn/poi/24850.html
 > 草原就不记录了，将军泡子，据说是古战场，马蜂窝的评论笑哭了。
 
 锡林郭勒盟 http://www.xlgl.gov.cn
+http://www.mafengwo.cn/i/14752794.html
+
+> 这个城市布局很方正，看别人的游记还不错，风景挺美。
 
 乌兰察布 http://www.wulanchabu.gov.cn
 鄂尔多斯 http://www.ordos.gov.cn

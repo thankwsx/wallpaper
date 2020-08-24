@@ -25,8 +25,17 @@ http://www.aoyou.com/news/n11649/
 > 没想到这里的天池也很美，驼峰岭天池位于阿尔山。酷，中国的风景也挺美啊。
 
 通辽 http://www.tongliao.gov.cn
+https://travel.sohu.com/20160713/n458959801.shtml
+
+> 草原景色也有，但是我更感兴趣的是孝庄这个名字，于是收录孝庄园文化旅游区。
+
 赤峰 http://www.chifeng.gov.cn
+http://www.mafengwo.cn/poi/24850.html
+
+> 草原就不记录了，将军泡子，据说是古战场，马蜂窝的评论笑哭了。
+
 锡林郭勒盟 http://www.xlgl.gov.cn
+
 乌兰察布 http://www.wulanchabu.gov.cn
 鄂尔多斯 http://www.ordos.gov.cn
 巴彦淖尔 http://www.bynr.gov.cn

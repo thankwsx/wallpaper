@@ -10,6 +10,10 @@ http://bbs.lvye.cn/thread-2623038-1-1.html
 > 呼和浩特，景点多，但知名的好像不多，选取一个三星景点，五塔寺。
 
 包头 http://www.baotou.gov.cn
+https://www.fliggy.com/content/d-210150062981?ttid=seo.000000576&seoType=origi
+
+> 希拉穆仁大草原，内蒙古怎么能没有草原和蒙古包。哈哈
+
 呼伦贝尔 http://www.hlbe.gov.cn
 兴安盟 http://www.xam.gov.cn
 通辽 http://www.tongliao.gov.cn

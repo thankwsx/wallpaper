@@ -40,6 +40,10 @@ http://www.mafengwo.cn/i/14752794.html
 > 这个城市布局很方正，看别人的游记还不错，风景挺美。
 
 乌兰察布 http://www.wulanchabu.gov.cn
+https://www.sohu.com/a/85505247_439998
+
+> 黄花沟，草原上的火山，看了不少游记，内蒙景点宰客都比较严重。这点要注意。
+
 鄂尔多斯 http://www.ordos.gov.cn
 巴彦淖尔 http://www.bynr.gov.cn
 乌海 http://www.wuhai.gov.cn

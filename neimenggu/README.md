@@ -45,6 +45,10 @@ https://www.sohu.com/a/85505247_439998
 > 黄花沟，草原上的火山，看了不少游记，内蒙景点宰客都比较严重。这点要注意。
 
 鄂尔多斯 http://www.ordos.gov.cn
+https://www.popyard.com/cgi-mod/newspage.cgi?num=6576844&r=1%3E%3E%3E%3E%3E%3E%3E%3E%3E%3E%3E%3E%3E%3E%3E
+
+> 鄂尔多斯，印象中除了羊毛衫就是那鬼城的名头了，截取一处沙漠中的五星级酒店作为桌面。
+
 巴彦淖尔 http://www.bynr.gov.cn
 乌海 http://www.wuhai.gov.cn
 阿拉善盟 http://www.als.gov.cn

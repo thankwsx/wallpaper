@@ -65,4 +65,8 @@ http://travel.sina.com.cn/domestic/pages/2018-10-19/detail-ifxeuwws6004122.shtml
 > 阿拉善除了有英雄会，还有这么美的胡杨林，一定得去看看，得找个秋天。
 
 满洲里 http://www.manzhouli.gov.cn
+https://zhuanlan.zhihu.com/p/157610212
+
+> 呼伦贝尔代管的市，一直以为是在东北，其实是在内蒙，三国交界的地方，套娃广场很有特点，浓浓俄罗斯风情。
+
 二连浩特 http://www.elht.gov.cn

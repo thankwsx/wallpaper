@@ -60,5 +60,9 @@ http://m.wumaow.org/paihang/36287.html
 > 本以为乌梁素海已经不错了，又来了个城市名就以湖为名的，乌海，旁边就是沙漠，奇特。
 
 阿拉善盟 http://www.als.gov.cn
+http://travel.sina.com.cn/domestic/pages/2018-10-19/detail-ifxeuwws6004122.shtml
+
+> 阿拉善除了有英雄会，还有这么美的胡杨林，一定得去看看，得找个秋天。
+
 满洲里 http://www.manzhouli.gov.cn
 二连浩特 http://www.elht.gov.cn

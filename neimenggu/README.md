@@ -50,7 +50,15 @@ https://www.popyard.com/cgi-mod/newspage.cgi?num=6576844&r=1%3E%3E%3E%3E%3E%3E%3
 > 鄂尔多斯，印象中除了羊毛衫就是那鬼城的名头了，截取一处沙漠中的五星级酒店作为桌面。
 
 巴彦淖尔 http://www.bynr.gov.cn
+http://www.zgcsb.com/zhuanti/2019-09/25/content_125934.html
+
+> 河套地区，本来想选取大坝沟岩画的，实在没有好图，突然发现有个乌梁素海，草原地区的湖泊，截一个。
+
 乌海 http://www.wuhai.gov.cn
+http://m.wumaow.org/paihang/36287.html
+
+> 本以为乌梁素海已经不错了，又来了个城市名就以湖为名的，乌海，旁边就是沙漠，奇特。
+
 阿拉善盟 http://www.als.gov.cn
 满洲里 http://www.manzhouli.gov.cn
 二连浩特 http://www.elht.gov.cn

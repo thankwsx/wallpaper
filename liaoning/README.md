@@ -12,7 +12,9 @@ http://www.ln.gov.cn/
 
 > 没有去过的城市，俄罗斯风情也蛮多，渔人码头记录之。
 
-鞍山
+鞍山 http://www.dongbeilvyoujingqulianmeng.com/store_12.htm
+
+> 长白山余脉，千山，从图片看，风景确实不错。
 
 抚顺
 

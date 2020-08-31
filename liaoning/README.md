@@ -8,7 +8,9 @@ http://www.ln.gov.cn/
 
 > 全国仅存的两大宫殿建筑群，其一就是沈阳故宫。
 
-大连
+大连 https://k.sina.cn/article_2501578225_951b0df104000qrtz.html?from=travel
+
+> 没有去过的城市，俄罗斯风情也蛮多，渔人码头记录之。
 
 鞍山
 

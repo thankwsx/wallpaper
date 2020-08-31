@@ -16,7 +16,9 @@ http://www.ln.gov.cn/
 
 > 长白山余脉，千山，从图片看，风景确实不错。
 
-抚顺
+抚顺 http://www.sunny-information.com/thread-33010-1-1.html
+
+> 之前只知道是煤矿产地，没想到这亚洲第一大露天煤矿如此震撼，真是牛。
 
 本溪
 

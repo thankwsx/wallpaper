@@ -20,7 +20,9 @@ http://www.ln.gov.cn/
 
 > 之前只知道是煤矿产地，没想到这亚洲第一大露天煤矿如此震撼，真是牛。
 
-本溪
+本溪 https://k.sina.cn/article_1634058407_6165c0a7001001xcr.html?cre=tianyi&mod=wpage&loc=2&r=0&doct=0&rfunc=0&tj=none&tr=98&http=fromhttp
+
+> 又来了一个溶洞，但是名字叫水洞，据介绍地下河流长度最长，值得见识下。
 
 丹东
 

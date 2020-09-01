@@ -24,7 +24,9 @@ http://www.hlj.gov.cn/
 
 > 每个中国人都知道的铁人，王进喜，大庆油田。
 
-鸡西市
+鸡西市 https://kuaibao.qq.com/s/20180523A0VCK600?refer=spider
+
+> 曾经的内湖，现在变成界湖，也算一段屈辱的历史。兴凯湖。
 
 双鸭山市
 

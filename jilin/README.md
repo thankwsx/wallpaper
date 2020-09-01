@@ -12,7 +12,9 @@
 
 > 景点就不去四处寻找了，雾凇确大大有名。
 
-四平市
+四平市 https://www.trip.com/travel-guide/review-attraction/shanmen-scenic-area-80422/87698644/
+
+> 也是东北主战场之一，但是更喜欢中生代火山地质公园这种景色，柱状节理，拽个文。
 
 辽源市
 

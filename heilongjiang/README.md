@@ -20,7 +20,9 @@ http://www.hlj.gov.cn/
 
 > 很有名的城市。黑瞎子岛又是具有纪念意义的一个地方。中苏。
 
-大庆市
+大庆市 http://www.sznews.com/news/content/2019-07/18/content_22268099.htm
+
+> 每个中国人都知道的铁人，王进喜，大庆油田。
 
 鸡西市
 

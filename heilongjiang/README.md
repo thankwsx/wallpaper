@@ -36,7 +36,9 @@ http://www.hlj.gov.cn/
 
 > 除了桂林有石林，最东北的黑龙江也有石林，汤旺河石林景区，有石头有松涛，不错不错。
 
-七台河市
+七台河市 https://www.trip.com/travel-guide/qitaihe/shilongshan-national-forest-park-101568/
+
+> 很小的城市，找到一篇风水文章，石龙山景色还是很好的。
 
 鹤岗市
 

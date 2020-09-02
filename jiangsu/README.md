@@ -8,7 +8,9 @@ http://js.gov.cn/?mixols=yuhp11
 
 > 南京的景点真是太多了，鸡鸣寺、中山陵、城墙，突然看到了南京长江大桥。
 
-无锡市
+无锡市 https://commons.wikimedia.org/wiki/File:%E6%97%A0%E9%94%A1%E7%81%B5%E5%B1%B1%E6%99%AF%E5%8C%BA_-_panoramio_(1).jpg
+
+> 无锡灵山大佛还是给我留下很深的印象的。
 
 徐州市
 

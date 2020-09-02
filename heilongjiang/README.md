@@ -48,6 +48,10 @@ http://www.hlj.gov.cn/
 
 > 五大连池，五大湖，傻傻分不清楚。火山群的景色和一般山峰啥的还是区别很大的。
 
-绥化市
+绥化市 https://www.meet99.com/jingdian-wanglongshan
+
+> 好风景估计是有的，但是网上实在搜索不到，只有一个模糊版本的望龙山。
 
 大兴安岭地区行政公署
+
+发现一篇不错的游戏，这人也是东北逛了一大圈 https://card.weibo.com/article/m/show/id/2309404319761415731846

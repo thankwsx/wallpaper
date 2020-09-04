@@ -48,6 +48,8 @@ http://js.gov.cn/?mixols=yuhp11
 
 > 金山寺，也是小时候父母带我游玩的地方。
 
-泰州市
+泰州市 https://travel.qunar.com/travelbook/note/6955564
+
+> 不懂修片，但这篇游记里的照片属实不错，泰州也的确有很多不错的地方，望海楼就是我从谷歌搜索中发现的。
 
 宿迁市

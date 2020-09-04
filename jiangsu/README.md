@@ -24,7 +24,9 @@ http://js.gov.cn/?mixols=yuhp11
 
 > 苏州古镇太多了，有名的很多，甪直古镇因为名字的原因，不是特别有名，但是也很有味道。
 
-南通市
+南通市 http://travel.sina.com.cn/domestic/pages/2018-12-04/detail-ihmutuec6102691.shtml
+
+> 虽然是江北，但是江苏的古迹景点真是多，狼山因为米芾的真迹而出名，江海第一山，不是浪得虚名。
 
 连云港市
 

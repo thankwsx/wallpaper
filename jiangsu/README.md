@@ -36,7 +36,9 @@ http://js.gov.cn/?mixols=yuhp11
 
 > 运河之都，漕运总督府署，周恩来故居，韩信，吴承恩，淮安的历史古迹很多，选取了市区的古迹镇淮楼作为墙纸。
 
-盐城市
+盐城市 http://www.etnet.com.hk/mobile/tc/news/photo_news_detail.php?newsid=14061&page=1
+
+> 麋鹿的家园，大丰，大学的时候交过一个初中生笔友就在大丰。
 
 扬州市
 

@@ -32,7 +32,9 @@ http://js.gov.cn/?mixols=yuhp11
 
 > 花果山、水帘洞，连云港对于我来说，就是这样的标签。
 
-淮安市
+淮安市 https://hk.trip.com/travel-guide/huai-an/zhenhuai-house-79320/
+
+> 运河之都，漕运总督府署，周恩来故居，韩信，吴承恩，淮安的历史古迹很多，选取了市区的古迹镇淮楼作为墙纸。
 
 盐城市
 

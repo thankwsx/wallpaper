@@ -16,7 +16,9 @@ http://js.gov.cn/?mixols=yuhp11
 
 > 徐州，楚汉争霸，不过5A景区云龙湖风景还是很不错的，可以和西湖较较劲。
 
-常州市
+常州市 https://travel.qunar.com/travelbook/note/6605420
+
+> 本土游乐园，堪比迪斯尼，常州恐龙园，恐龙届的扛把子。
 
 苏州市
 

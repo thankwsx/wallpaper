@@ -28,7 +28,9 @@ http://www.ah.gov.cn/
 
 > 居然还有四大西湖之说，不过也不错，颍州西湖的风景也别有风味。
 
-淮南市
+淮南市 https://touch.travel.qunar.com/comment/10162164363?userId=172494416@qunar
+
+> 风声鹤唳，草木皆兵，八公山，豆腐发祥地，一定要去一次。
 
 滁州市
 

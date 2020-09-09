@@ -18,7 +18,9 @@ http://www.fj.gov.cn/
 
 > 尚武之地，南北少林。
 
-三明市
+三明市 https://travel.qunar.com/travelbook/note/6169705
+
+> 三明绿色中的绿，泰宁地质公园。
 
 莆田市
 

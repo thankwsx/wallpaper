@@ -22,7 +22,9 @@ http://www.fj.gov.cn/
 
 > 三明绿色中的绿，泰宁地质公园。
 
-莆田市
+莆田市 https://you.ctrip.com/place/meizhoudao1445940.html
+
+> 莆田也有一个南少林，看起来也一样正牌，那就选湄洲岛来做地标吧。
 
 南平市
 

@@ -2,7 +2,9 @@
 
 http://www.fj.gov.cn/
 
-福州市
+福州市 http://www.fjta.com/travels/detail/124
+
+福州、林平之老家哈哈，福州路过一次，三坊七巷还是值得去看看的。
 
 厦门市
 

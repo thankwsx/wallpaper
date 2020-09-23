@@ -82,3 +82,7 @@
 重要参考资料：
 
 1. 百科地理组 https://baike.baidu.com/item/%E7%99%BE%E7%A7%91%E5%8E%86%E5%8F%B2%E5%9C%B0%E7%90%86%E7%BB%84/23402212?fr=wordsearch&fromtitle=%E7%99%BE%E7%A7%91%E5%9C%B0%E7%90%86%E7%BB%84&fromid=13384802
+
+2. 身份证号段来源说明 https://www.zhihu.com/question/23366365
+
+3. 中华人民共和国县以上行政区划代码 http://www.mca.gov.cn//article/sj/xzqh/2020/2020/20200908007001.html

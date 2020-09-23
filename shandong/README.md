@@ -16,7 +16,11 @@ http://news.bandao.cn/a/381400.html
 
 ![崂山](qingdao.jpg)
 
-淄博市
+淄博市 https://www.fulvxing.com/piao/detail/offerid/1237.html
+
+> 淄博有古车马，有蒲松龄，但是这些后造的人文景观都有点假了，还是现代加自然结合的潭溪山更吸引我去探访。
+
+![潭溪山](zibo.jpg)
 
 枣庄市
 

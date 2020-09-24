@@ -22,7 +22,9 @@ http://news.bandao.cn/a/381400.html
 
 ![潭溪山](zibo.jpg)
 
-枣庄市
+枣庄市 http://leshuiyou.cn/portal/newsup/franchise-detail?id=6dc14f44f68011e7953400163e03575d
+
+> 台儿庄在枣庄，不过大半毁于战争时期，微山湖也在枣庄，铁道游击队应该也在枣庄。微山湖其实挺大，著名的红荷风景区挺漂亮。
 
 东营市
 

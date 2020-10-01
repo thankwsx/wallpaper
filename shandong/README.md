@@ -50,7 +50,9 @@ http://news.bandao.cn/a/381400.html
 
 > 西霞口 成山头 好运角，北京以南最东面，离韩国最近的景区。总总称呼，是我对威海这一处的印象。不过威海还有有关秦始皇的庙宇，以及甲午海战的博物馆值得一去。
 
-日照市
+日照市 http://www.lvmama.com/lvyou/photo/d-rizhaohaibinguojiasenlingongyuan160579.html
+
+> 海边有沙滩，还有森林？对，日照海滨森林公园就是这么个地方，让我想起了LOST。日照确实是个好地方。
 
 临沂市
 

@@ -58,7 +58,9 @@ http://news.bandao.cn/a/381400.html
 
 > 银座，中国居然有个景点叫银座。沂蒙山很有名，居然就在离江苏挨着的临沂市，不错。
 
-德州市
+德州市 https://m.ctrip.com/webapp/you/tripshoot/paipai/detail/detail?articleId=6109146&seo=0&from=https%3A%2F%2Fgs.ctrip.com%2Fhtml5%2Fyou%2Fsight%2Fqingyun2890%2F135334.html%3Fseo%3D1
+
+> 德州扒鸡，每每路过德州，总能听到熟悉的叫卖声。德州的旅游资源没有特别多，千年枣树，太阳谷什么的挑不出好图片，选择一个海导金山寺作为典型吧。
 
 聊城市
 

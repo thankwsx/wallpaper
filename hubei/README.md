@@ -4,35 +4,35 @@ http://www.hubei.gov.cn/
 
 湖北省位于中华人民共和国的中部,简称鄂。地跨东经108°21′42″～116°07′50″、北纬29°01′53″～33°6′47″。东邻安徽,南界江西、湖南,西连重庆,西北与陕西接壤,北与河南毗邻。东西长约740公里,南北宽约470公里。全省国土总面积18.59万平方公里,占全国总面积的1.94%。
 
-武汉市 2020-10-25 黄鹤楼 http://www.chaopinnews.com/articleid/39866.html
+武汉市 wuhan 2020-10-25 黄鹤楼 http://www.chaopinnews.com/articleid/39866.html
 
 > 本来想找个偏门——木兰天池，一个离市区有点远，真是后花园，另一个还是逃不过黄鹤楼的名气，虽然是现代建筑，移址重建，但是的确蔚为壮观，也是大武汉的一大名片。
 
-襄阳市 2020-10-26 襄阳城 https://kuaibao.qq.com/s/20180218A0O7ZE00?refer=spider
+襄阳市 xiangyang 2020-10-26 襄阳城 https://kuaibao.qq.com/s/20180218A0O7ZE00?refer=spider
 
 > 襄阳，第一印象就是郭大侠，果然襄阳城的城墙是NB的。古色古香，北门锁钥。
 
-宜昌市 2020-10-27 三峡大坝 https://www.ettoday.net/news/20200624/1745115.htm
+宜昌市 yichang 2020-10-27 三峡大坝 https://www.ettoday.net/news/20200624/1745115.htm
 
 > 宜昌的三峡人家的水并不是清澈见底的，三峡大坝作为万年大计，不得不单独拎出来说说。
 
-黄石市 2020-10-28 黄石国家矿山公园 http://www.cunman.com/new/1d07559936804b0887ad53ab766b6721
+黄石市 huangshi 2020-10-28 黄石国家矿山公园 http://www.cunman.com/new/1d07559936804b0887ad53ab766b6721
 
 > 原来我们国家连西塞山都有两个，景点偏小了。抚顺的矿山比起这个来面积应该是大不少，不过深度还是黄石的深一点，铁矿为主，旁边还有大冶。
 
-十堰市 2020-10-29 武当山 https://www.latiaozixun.net/20200308/4B6D78602B00EACCD219871ABC6EECB5-1.html
+十堰市 shiyan 2020-10-29 武当山 https://www.latiaozixun.net/20200308/4B6D78602B00EACCD219871ABC6EECB5-1.html
 
 > 武林泰斗，少林武当，武当原来就在十堰，一直以为十堰只是一个汽车城，原来金老先生的武当也在此地，不过门票230有点小贵啊。
 
-荆州市 2020-10-30 荆州城墙 https://epaper.hubeidaily.net/pc/content/202010/12/content_57868.html
+荆州市 jingzhou 2020-10-30 荆州城墙 https://epaper.hubeidaily.net/pc/content/202010/12/content_57868.html
 
 > 刚从襄阳过来没多久，又走到更古远的荆州，三国关羽的驻地所在，城墙保存完好程度全国排名靠前。
 
-荆门市 2020-10-31 明显陵 https://you.ctrip.com/sight/zhongxiang863/17908-dianping155644969.html
+荆门市 jingmen 2020-10-31 明显陵 https://you.ctrip.com/sight/zhongxiang863/17908-dianping155644969.html
 
 > 走神了，嘉靖帝在荆门长大，因为明11帝武宗无子嗣，于是传皇位给嘉靖，明世宗。显陵是嘉靖登基之后给他父亲改造的皇陵，还引起了大礼议事件。
 
-鄂州市 2020-11-01 莲花山 https://3g.163.com/news/article/FOU06I1205373PJ6.html
+鄂州市 ezhou 2020-11-01 莲花山 https://3g.163.com/news/article/FOU06I1205373PJ6.html
 
 > 鄂州，古楚国的都城，湖北省简称的由来，莲花山碑林的建筑风格很是少见，网上图略少。
 

@@ -4,74 +4,74 @@ http://www.henan.gov.cn/
 
 河南省位于中国中东部，黄河中下游，黄淮海平原西南部，河南省古代辖区位于黄河之南，故名"河南"。2000多年前，河南是中国九州中心的豫州，所以，河南简称"豫"，且有"中州"、"中原"之称。河南与河北、山西、陕西、湖北、安徽、山东毗邻。全省总面积16.7万平方公里。黄河流经河南境内700多公里。
 
-郑州市 2020-10-07 少林寺 https://travel.qunar.com/travelbook/note/6673638
+郑州市 zhengzhou 2020-10-07 少林寺 https://travel.qunar.com/travelbook/note/6673638
 
 > 郑州其实没有啥历史，不过少林寺所在的登封现在是郑州的下辖县市，于是我就毫不犹豫选择了少林寺，河南省的历史景点挑选起来毫不费力。
 
-开封市 2020-10-08 清明上河园 https://gs.ctrip.com/html5/you/sight/kaifeng165/9504.html
+开封市 kaifeng 2020-10-08 清明上河园 https://gs.ctrip.com/html5/you/sight/kaifeng165/9504.html
 
 > 开封，东京、汴梁，历史古都，现如今沦为三线城市了，景点大多是人造或翻修的，不过全国人文景点不是翻新或仿古的又能有几个呢。清明上河园记述了宋朝的繁荣。
 
-洛阳市 2020-10-09 龙门石窟 http://www.9797363.com/view/20190330/8647.html
+洛阳市 luoyang 2020-10-09 龙门石窟 http://www.9797363.com/view/20190330/8647.html
 
 > 洛阳牡丹犹在目，洛阳可是历史悠久，古迹繁多，龙门石窟就不得了。
 
-平顶山市 2020-10-10 中原大佛 https://new.qq.com/omn/20180703/20180703A1YKC1.html
+平顶山市 pingdingshan 2020-10-10 中原大佛 https://new.qq.com/omn/20180703/20180703A1YKC1.html
 
 > 平顶山，好像还是我国的飞机坟场，位于鲁山县，不过最令我讶异的还是第一高的大佛，中原大佛景区，真的是大。
 
-安阳市 2020-10-11 红旗渠 http://bj.010lm.com/a/2018/0513/159576.html
+安阳市 anyang 2020-10-11 红旗渠 http://bj.010lm.com/a/2018/0513/159576.html
 
 > 安阳除了钢铁厂，古迹不胜繁多，上至殷墟、曹操墓，解放后的红旗渠更是显示了人力的奇迹。
 
-鹤壁市 2020-10-12 云梦山 http://www.hebi.gov.cn/zghb/436876/437015/3370539/index.html
+鹤壁市 hebi 2020-10-12 云梦山 http://www.hebi.gov.cn/zghb/436876/437015/3370539/index.html
 
 > 鹤壁是河南最小的地级市，据传鬼谷子曾在此修炼，还有春秋战国时最早的军事学校。
 
-新乡市 2020-10-13 宝泉 https://www.sohu.com/a/317677485_117402
+新乡市 xinxiang 2020-10-13 宝泉 https://www.sohu.com/a/317677485_117402
 
 > 这个景区确实漂亮，值得一去，瀑布、湖泊，不知道和九寨沟比差距多大。
 
-焦作市 2020-10-14 云台山 https://www.kanghui.org/gl/fyXxjUVVg.html
+焦作市 jiaozuo 2020-10-14 云台山 https://www.kanghui.org/gl/fyXxjUVVg.html
 
 > 听起来名字和五台山还挺像的，焦作，之前以为是煤炭城市，没想到丹霞地貌的云台山也很美丽啊。
 
-濮阳市 2020-10-15 中华第一龙 http://www.loongfeng.org/zhong-hua-di-yi-long/
+濮阳市 puyang 2020-10-15 中华第一龙 http://www.loongfeng.org/zhong-hua-di-yi-long/
 
 > 这个消息也太震惊了，距今6500年的古墓，里面有龙和虎！！真是世界第一龙。
 
-许昌市 2020-10-16 大鸿寨 https://k.sina.cn/article_2643734600_p9d94304800100mdiw.html
+许昌市 xuchang 2020-10-16 大鸿寨 https://k.sina.cn/article_2643734600_p9d94304800100mdiw.html
 
 > 许昌，曹魏、三国紧紧相连，还有许昌为什么和西湖、文峰塔也有关联啊，全国叫西湖的真多。人文景观大多仿制，自然景观大鸿寨的秋色还是很浓的。
 
-漯河市 2020-10-17 沙澧河风景区 https://k.sina.cn/article_6440023104_17fdaf4400010054q5.html
+漯河市 luohe 2020-10-17 沙澧河风景区 https://k.sina.cn/article_6440023104_17fdaf4400010054q5.html
 
 > 跟着沙河、澧和一起流，流到颍河，并入淮河，进入京杭大运河，就这样一座中原水城和我的老家就连在了一起。漯河还有双汇火腿肠。
 
-三门峡市 2020-10-18 三门峡大坝 http://dzrb.dzng.com/articleContent/2241_786081.html
+三门峡市 sanmenxia 2020-10-18 三门峡大坝 http://dzrb.dzng.com/articleContent/2241_786081.html
 
 > 函谷关、天鹅湿地，还是不够典型，三门峡市起名的由来，三门峡大坝跃然键上。开国后最大的水利工程了吧？黄河第一坝。
 
-南阳市 2020-10-19 伏牛山 https://m.nanrenwo.net/article/169027.html
+南阳市 nanyang 2020-10-19 伏牛山 https://m.nanrenwo.net/article/169027.html
 
 > 躬耕于南阳，诸葛亮。这地方地盘大，风景确实美，伏牛山老界岭就是神仙一样的地方。
 
-商丘市 2020-10-20 芒砀山 http://www.mangshan.net/
+商丘市 shangqiu 2020-10-20 芒砀山 http://www.mangshan.net/
 
 > 一直以为是安徽的地盘，商丘的芒砀山。5A景点，还有汉代的一些古迹景点等。商丘还有省内唯一的国家重点湿地——民权黄河故道湿地。
 
-信阳市 2020-10-21 鸡公山 https://gs.ctrip.com/html5/you/sight/xinyang448/14407.html
+信阳市 xinyang 2020-10-21 鸡公山 https://gs.ctrip.com/html5/you/sight/xinyang448/14407.html
 
 > 恰好有个同事就是信阳的，在了解之前还真没听说过这个山，鸡公山，信阳出名的还有茶叶——毛尖。
 
-周口市 2020-10-22 老君台 http://www.gotolvyou.com/base/1/3306.html
+周口市 zhoukou 2020-10-22 老君台 http://www.gotolvyou.com/base/1/3306.html
 
 > 伏羲故里，老子故里，周口这文化底蕴不得了，老君台被轰13发炮弹全是哑炮的概率究竟有多低，难以想象。
 
-驻马店市 2020-10-23 嵖岈山 http://www.cctsu.com/xianlu/602/
+驻马店市 zhumadian 2020-10-23 嵖岈山 http://www.cctsu.com/xianlu/602/
 
 > 这个市名由来有两种说法：驿站说和苎麻说，据说后来想改名，未果。嵖岈山，西游记外景取景地之一，山峰很光滑。
 
-济源市 2020-10-24 王屋山 https://www.sohu.com/a/410823815_100168271
+济源市 jiyuan 2020-10-24 王屋山 https://www.sohu.com/a/410823815_100168271
 
 > 济源市不大，地位不低。愚公移山的故事人尽皆知，王屋山还是道教第一洞天，可以一看。

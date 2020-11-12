@@ -8,7 +8,9 @@ http://hunan.gov.cn/
 
 岳麓山，橘子洲头，都是长沙鼎鼎大名的景点，岳麓山还是免费的。岳麓书院收费。停车坐爱枫林晚，爱晚亭就在岳麓山上。赞！
 
-衡阳市 hengyang 2020-11-12
+衡阳市 hengyang 2020-11-12 衡山 https://www.2bulu.com/community/gotohuatinfo.htm?id=VRcYzGNESL6iy0zj0M%2B0%2Bw%3D%3D&type=1
+
+> 南岳衡山，寿岳，寿比南山，很吉庆的一岳。对湖南的历史地理知识需要加强，衡阳地图就像一个缩小版的湖南省。
 
 株洲市 zhuzhou 2020-11-13
 

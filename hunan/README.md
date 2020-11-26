@@ -6,7 +6,7 @@ http://hunan.gov.cn/
 
 长沙市 changsha 2020-11-11 岳麓山 https://outletscn.com/news/outlets-news/alshcs/
 
-岳麓山，橘子洲头，都是长沙鼎鼎大名的景点，岳麓山还是免费的。岳麓书院收费。停车坐爱枫林晚，爱晚亭就在岳麓山上。赞！
+> 岳麓山，橘子洲头，都是长沙鼎鼎大名的景点，岳麓山还是免费的。岳麓书院收费。停车坐爱枫林晚，爱晚亭就在岳麓山上。赞！
 
 衡阳市 hengyang 2020-11-12 衡山 https://www.2bulu.com/community/gotohuatinfo.htm?id=VRcYzGNESL6iy0zj0M%2B0%2Bw%3D%3D&type=1
 

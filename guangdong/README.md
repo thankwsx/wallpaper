@@ -48,7 +48,9 @@ http://www.gd.gov.cn/
 
 > 保存最为完好的岭南四大园林之一，主人是屡被天地会清朝按察使，罢官之后回乡修园子，甚至不惜借贷修。主人还广邀文人墨客，使其地成为一个文化策源地。
 
-中山市 zhongshan 2020-12-06
+中山市 zhongshan 2020-12-06 阜峰文笔 https://k.sina.com.cn/article_2943269702_af6ebb4600100o983.html?from=travel&sudaref=www.google.com&display=0&retcode=0
+
+> 中山原名香山，因为与孙中山的关系，这个城市改名为了中山，阜峰文笔就是旧中山八景仅存的之一，新选择的中山八景基本都围绕中山先生而来了。
 
 江门市 jiangmen 2020-12-07
 

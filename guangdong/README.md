@@ -64,7 +64,9 @@ http://www.gd.gov.cn/
 
 > 独占一个半岛的地级市，湖光岩是一个火山口形成的，大龟造型很是好玩。
 
-茂名市 maoming 2020-12-10
+茂名市 maoming 2020-12-10 放鸡岛 https://www.baike.com/wiki/%E6%94%BE%E9%B8%A1%E5%B2%9B?view_id=55oazuth21o000
+
+> 这个岛的名字就很有意思，现在还有改名为潜梦岛，如果恰好路过，可以去转转。
 
 肇庆市 zhaoqing 2020-12-11
 

@@ -24,7 +24,9 @@ http://www.gxzf.gov.cn/
 
 > 北海，孔融，没想到是在中国大陆的最南端，涠洲岛，中国最大、最年轻的火山岛。北海还有一个银滩，也有意思。
 
-防城港市 fangchenggang 2020-12-21
+防城港市 fangchenggang 2020-12-21 北部湾 http://k.sina.com.cn/article_7203183098_1ad57d9fa00100h31u.html?cre=tianyi&mod=pcpager_focus&loc=9&r=9&rfunc=100&tj=none&tr=9
+
+> 北海、钦州、防城港，广西三座沿海的城市。北海知名度最高，其实另外两个风景不输北海，北部湾的景色值得夏天去玩玩。
 
 钦州市 qinzhou
 

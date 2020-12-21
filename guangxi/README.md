@@ -16,25 +16,24 @@ http://www.gxzf.gov.cn/
 
 > 桂林山水，无话可说，一生一定要去的一个地方。
 
-梧州市
+梧州市 wuzhou 2020-12-19
 
-北海市
+北海市 beihai 2020-12-20
 
-防城港市
+防城港市 fangchenggang 2020-12-21
 
-钦州市
+钦州市 qinzhou
 
-贵港市
+贵港市 guigang
 
-玉林市
+玉林市 yulin
 
-百色市
+百色市 baise
 
-贺州市
+贺州市 hezhou
 
-河池市
+河池市 hechi
 
-来宾市
+来宾市 laibin
 
-崇左市
-
+崇左市 chongzuo

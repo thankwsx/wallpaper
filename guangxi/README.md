@@ -32,7 +32,9 @@ http://www.gxzf.gov.cn/
 
 > 钦州，和我有着不解之缘，三娘湾这个名字也很有个性，还是白海豚的故乡。海滩风景也不赖。
 
-贵港市 guigang
+贵港市 guigang 2020-12-23 西山 https://hk.trip.com/travel-guide/guiping/west-mountain-scenic-area-81020/
+
+> 神奇的乳泉，据说会不定期的喷出乳白色的泉水，很是神奇，西山不在贵港市区，在下面的桂平县，其人颇有争抢之势。
 
 玉林市 yulin
 

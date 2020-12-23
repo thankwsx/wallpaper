@@ -28,7 +28,9 @@ http://www.gxzf.gov.cn/
 
 > 北海、钦州、防城港，广西三座沿海的城市。北海知名度最高，其实另外两个风景不输北海，北部湾的景色值得夏天去玩玩。
 
-钦州市 qinzhou
+钦州市 qinzhou 2020-12-22 三娘湾 http://www.chinanews.se/index.php/content/index/pid/77/cid/3571.html
+
+> 钦州，和我有着不解之缘，三娘湾这个名字也很有个性，还是白海豚的故乡。海滩风景也不赖。
 
 贵港市 guigang
 

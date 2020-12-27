@@ -44,7 +44,9 @@ http://www.gxzf.gov.cn/
 
 > 小平同志领导的百色起义发生地。鹅泉风景优美。
 
-贺州市 hezhou
+贺州市 hezhou 2020-12-26 黄姚古镇 http://travel.sina.com.cn/domestic/pages/2017-11-29/detail-ifyphxwa7028337.shtml
+
+> 北方古镇，南方古镇，更南方的古镇，贺州老使我不自觉想到西牛贺洲。也许吴承恩也来过此地？黄姚古镇，不知道是不是真的没有商业包装古色古香，原生态还是稀有的。
 
 河池市 hechi
 

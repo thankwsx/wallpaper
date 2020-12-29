@@ -56,4 +56,6 @@ http://www.gxzf.gov.cn/
 
 > 广西唯一天池，也是比较超出我想象的。一年四季景色变幻。
 
-崇左市 chongzuo 2020-12-29
+崇左市 chongzuo 2020-12-29 花山岩画 http://travel.china.com.cn/txt/2018-04/21/content_50934284_9.htm
+
+> 神秘的悬崖上的敦煌，2500年前的古人，特别喜欢在各种崖壁上涂涂画画。

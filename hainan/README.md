@@ -8,7 +8,9 @@ http://www.hainan.gov.cn/
 
 > 海南人口稀少，骑楼老街是一种源自希腊的建筑风格，具有异域特色。
 
-三亚市 sanya 2020-12-31
+三亚市 sanya 2020-12-31 天涯海角 http://hainan.ifeng.com/app/sanya/detail_2015_05/25/3931786_0.shtml
+
+> 去三亚，不得不去天涯海角，以及吃海鲜。当然，如果能去三沙就更厉害了。
 
 三沙市 sansha 2021-01-01
 

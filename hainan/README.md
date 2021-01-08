@@ -24,7 +24,9 @@ http://www.hainan.gov.cn/
 
 > 万泉河水清又清，留下了一个中国微缩版亚马逊河。
 
-文昌市 wenchang 2021-01-04
+文昌市 wenchang 2021-01-04 航天发射场 https://cbgc.scol.com.cn/news/557741
+
+> 酒泉、文昌，感觉现在文昌航天发射场使用的频率越来越高了。
 
 万宁市 wanning
 

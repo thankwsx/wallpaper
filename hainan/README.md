@@ -6,7 +6,7 @@ http://www.hainan.gov.cn/
 
 海口市 haikou 2020-12-30 骑楼老街 https://www.sohu.com/a/373799109_384664
 
-> 海南人口稀少，骑楼老街是一种源自希腊的建筑风格，具有异域特色。
+> 海南人口稀少，骑楼老街是一种源自希腊的建筑风格，具有异域特色。
 
 三亚市 sanya 2020-12-31 天涯海角 http://hainan.ifeng.com/app/sanya/detail_2015_05/25/3931786_0.shtml
 

@@ -32,7 +32,9 @@ http://www.hainan.gov.cn/
 
 > 海水清澈，有待肉身亲自去验证。
 
-东方市 dongfang 2021-01-06
+东方市 dongfang 2021-01-06 鱼鳞洲 http://www.bajieyou.com/new/32028bb2c19041a2a1f1831da72dd4b6
+
+> 海边有巨石，异常凸起。城市的名字也很东方。
 
 五指山市 wuzhishan 2021-01-07
 

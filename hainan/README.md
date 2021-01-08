@@ -36,24 +36,26 @@ http://www.hainan.gov.cn/
 
 > 海边有巨石，异常凸起。城市的名字也很东方。
 
-五指山市 wuzhishan 2021-01-07
+五指山市 wuzhishan 2021-01-07 五指山 https://zh.wikipedia.org/wiki/%E4%BA%94%E6%8C%87%E5%B1%B1_(%E6%B5%B7%E5%8D%97)
+
+> 五指山市原来叫通什（za），后来改此名，相传孙悟空就是压在此山下（哈哈），网上找到一些五座山峰的照片，但是分辨率太低。
 
 乐东黎族自治县 ledong 2021-01-08
 
 澄迈县 chengmai 2021-01-09
 
-临高县 lingao
+临高县 lingao 2021-01-10
 
-定安县 dingan
+定安县 dingan 2021-01-11
 
-屯昌县 tunchang
+屯昌县 tunchang 2021-01-12
 
-陵水黎族自治县 lingshui
+陵水黎族自治县 lingshui 2021-01-13
 
-昌江黎族自治县 changjiang
+昌江黎族自治县 changjiang 2021-01-14
 
-保亭黎族苗族自治县 baoting
+保亭黎族苗族自治县 baoting 2021-01-15
 
-琼中黎族苗族自治县 qiongzhong
+琼中黎族苗族自治县 qiongzhong 2021-01-16
 
-白沙黎族自治县 baisha
+白沙黎族自治县 baisha 2021-01-17

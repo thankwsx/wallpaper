@@ -28,15 +28,17 @@ http://www.hainan.gov.cn/
 
 > 酒泉、文昌，感觉现在文昌航天发射场使用的频率越来越高了。
 
-万宁市 wanning
+万宁市 wanning 2021-01-05 分界洲岛 https://www.sohu.com/a/301232933_118685
 
-东方市 dongfang
+> 海水清澈，有待肉身亲自去验证。
 
-五指山市 wuzhishan
+东方市 dongfang 2021-01-06
 
-乐东黎族自治县 ledong
+五指山市 wuzhishan 2021-01-07
 
-澄迈县 chengmai
+乐东黎族自治县 ledong 2021-01-08
+
+澄迈县 chengmai 2021-01-09
 
 临高县 lingao
 

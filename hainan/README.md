@@ -40,7 +40,9 @@ http://www.hainan.gov.cn/
 
 > 五指山市原来叫通什（za），后来改此名，相传孙悟空就是压在此山下（哈哈），网上找到一些五座山峰的照片，但是分辨率太低。
 
-乐东黎族自治县 ledong 2021-01-08
+乐东黎族自治县 ledong 2021-01-08 佳西村 http://hainan.sina.cn/zimeiti/z/2018-09-26/detail-ifxeuwwr8317502.d.html
+
+> 海南少数民族村庄，景色优美。
 
 澄迈县 chengmai 2021-01-09
 

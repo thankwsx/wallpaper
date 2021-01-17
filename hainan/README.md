@@ -44,7 +44,9 @@ http://www.hainan.gov.cn/
 
 > 海南少数民族村庄，景色优美。
 
-澄迈县 chengmai 2021-01-09
+澄迈县 chengmai 2021-01-17 济公山 https://you.ctrip.com/travels/hainan100001/1724542.html
+
+> 历史悠久的县市，济公本是浙江人，这海岛之中尽有许多奇石与之相对应。奇哉，也需要些许想象力。
 
 临高县 lingao 2021-01-10
 

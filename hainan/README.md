@@ -48,7 +48,9 @@ http://www.hainan.gov.cn/
 
 > 历史悠久的县市，济公本是浙江人，这海岛之中尽有许多奇石与之相对应。奇哉，也需要些许想象力。
 
-临高县 lingao 2021-01-10
+临高县 lingao 2021-01-18 临高角 http://news.hainan.net/photo/hainan/xiaotu/2019/08/06/4068751_1.shtml#page2
+
+> 1950年，解放军登陆海南的地方，百年灯塔，见证海南岛的新历史。
 
 定安县 dingan 2021-01-11
 

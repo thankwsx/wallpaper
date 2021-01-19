@@ -52,7 +52,9 @@ http://www.hainan.gov.cn/
 
 > 1950年，解放军登陆海南的地方，百年灯塔，见证海南岛的新历史。
 
-定安县 dingan 2021-01-11
+定安县 dingan 2021-01-19 文笔峰 https://k.sina.cn/article_2255392750_p866e8fee00100qvgu.html
+
+> 也是一处宗教胜地，平原中一处凸起的山丘。
 
 屯昌县 tunchang 2021-01-12
 

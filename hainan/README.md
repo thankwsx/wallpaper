@@ -56,7 +56,9 @@ http://www.hainan.gov.cn/
 
 > 也是一处宗教胜地，平原中一处凸起的山丘。
 
-屯昌县 tunchang 2021-01-12
+屯昌县 tunchang 2021-01-20 海瑞祖居 https://kuaibao.qq.com/s/20200518AZPT0K00?refer=spider
+
+> 海南的县都不大，屯昌也是成立不到100年的城市，人口几十万，不过历史上这里出过一个大名人，那就是明朝的海青天——海瑞。
 
 陵水黎族自治县 lingshui 2021-01-13
 

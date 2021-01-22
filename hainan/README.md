@@ -64,7 +64,7 @@ http://www.hainan.gov.cn/
 
 > 比较有特色的猕猴保护景区，陵水还发生过中美战机空战的事。
 
-昌江黎族自治县 changjiang 2021-01-14 信冲洞 http://www.cjxbwg.com/noww.asp?id=7
+昌江黎族自治县 changjiang 2021-01-22 信冲洞 http://www.cjxbwg.com/noww.asp?id=7
 
 > 上世纪末发现的化石丰富的遗址，远离人类活动范围才容易保存相对完好。
 

@@ -72,6 +72,8 @@ http://www.hainan.gov.cn/
 
 > 海南以黎族和苗族居多，槟榔谷不知道是不是人造的景点，不过5A是名副其实的。了解海南原生态文化可以去的。
 
-琼中黎族苗族自治县 qiongzhong 2021-01-16
+琼中黎族苗族自治县 qiongzhong 2021-01-24 百花岭 http://hainan.sina.com.cn/news/comprehensive/2020-08-19/detail-iivhuipn9438364.shtml
+
+> 热带就应该有热带的气质，琼中也是一个黎族和苗族为主的地区，百花岭，主打雨林文化的4A景区。
 
 白沙黎族自治县 baisha 2021-01-17

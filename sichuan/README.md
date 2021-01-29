@@ -8,7 +8,9 @@ http://www.sc.gov.cn/
 
 > 都江堰，成都下辖县级市，抛开成都那么多景点，我选择了都江堰，自然是对这座千年工程情有独钟。值得去几次。
 
-自贡 zigong
+自贡 zigong 2021-01-29 自贡世界地质公园 https://3g.163.com/news/article/FV6FG7SQ05378PIV.html
+
+> 自贡是以恐龙闻名天下的，也具有很典型的地质产地。
 
 攀枝花 panzhihua
 

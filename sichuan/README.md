@@ -10,7 +10,7 @@ http://www.sc.gov.cn/
 
 自贡 zigong 2021-01-29 自贡世界地质公园 https://3g.163.com/news/article/FV6FG7SQ05378PIV.html
 
-> 自贡是以恐龙闻名天下的，也具有很典型的地质产地。
+> 自贡是以恐龙闻名天下的，也具有很典型的地质地貌，恐龙博物馆就在这个地质公园内。
 
 攀枝花 panzhihua
 

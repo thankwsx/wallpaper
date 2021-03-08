@@ -28,7 +28,7 @@ http://www.sc.gov.cn/
 
 > 地壳运动的神奇，产生了这么一座山，喀斯特地貌，有全景浏览，线上资源丰富。
 
-广元 guangyuan 2021-03-09 剑门关 https://kuaibao.qq.com/s/20190721A0DBBO00?refer=spider
+广元 guangyuan 2021-03-08 剑门关 https://kuaibao.qq.com/s/20190721A0DBBO00?refer=spider
 
 > 四川的门户，天下第一雄关，剑门关。后建的关楼看起来好小，看图片还不是很明显，还是得去亲身体验一下才知道到底有多险。
 

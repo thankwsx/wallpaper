@@ -32,7 +32,9 @@ http://www.sc.gov.cn/
 
 > 四川的门户，天下第一雄关，剑门关。后建的关楼看起来好小，看图片还不是很明显，还是得去亲身体验一下才知道到底有多险。
 
-遂宁 suining
+遂宁 suining 2021-03-24 灵泉寺 https://hk.trip.com/travel-guide/suining/holy-water-temple-10543736/
+
+> 相传遂宁是观音的故乡，这塔也挺壮观。据说遂宁还有一个中国死海，也可以去玩玩。
 
 内江 neijiang
 

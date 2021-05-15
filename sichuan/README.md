@@ -44,7 +44,9 @@ http://www.sc.gov.cn/
 
 > 围绕乐山大佛的传说特别多，有什么四次眼流泪说，有洗脚说，乐山大佛前面就是岷江。又是有生之年系列。
 
-南充 nanchong
+南充 nanchong 2021-05-15 阆中古城 http://travel.qunar.com/travelbook/smartlist/7426521
+
+> 阆中古城，不知道为什么号称四大古城之一，不过说到名字还是有一些似曾相识的感觉的，阆中还曾经是川蜀的中心。
 
 宜宾 yibin
 

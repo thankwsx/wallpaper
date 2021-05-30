@@ -52,7 +52,9 @@ http://www.sc.gov.cn/
 
 > 宜宾，既有五粮液，又有悬棺，悬棺的确很神奇和神秘，放棺材照片有点瘆人，还是放弃了，挑选了赏心悦目的竹海。宜宾宜兴，傻傻分不清楚。
 
-广安 guangan
+广安 guangan 2021-05-31 宝箴寨 http://scnongye.scol.com.cn/web/detail.aspx?id=5607
+
+> 广安，总设计师的故乡，还有有着攻不破之称的蜀中堡垒——宝箴寨。
 
 达州 dazhou
 

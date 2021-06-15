@@ -80,6 +80,8 @@ http://www.sc.gov.cn/
 
 > 中国最后一位土司的官寨，毛泽东长征北上的过程中还曾在此住宿一周，并对土司有了新的认识。整栋建筑是穿斗式，未用一钉一铆。
 
-甘孜 ganzi
+甘孜 ganzi 2021-06-15 丹巴古碉群 https://www.nanmuxuan.com/zh-tw/leisure/fxwuwpjlila.html
+
+> 藏族特色村落，号称最美村落，看了下民宿的评价也不错，上不了高原，在这高原脚下欣赏也不错啊。据说女儿国也是以此地的东女国为原型的。
 
 凉山 liangshan

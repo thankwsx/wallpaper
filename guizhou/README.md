@@ -6,7 +6,9 @@
 
 贵州省官方网站 http://www.guizhou.gov.cn/
 
-贵阳市 guiyang
+贵阳市 guiyang 2021-06-21 花溪黄金大道 http://k.sina.com.cn/article_5392590366_p1416c661e02700k9os.html?cre=tianyi&mod=pcpager_focus&loc=3&r=9&rfunc=100&tj=none&tr=9
+
+> 花溪黄金大道，500M长的网红大道。千年银杏，景观是不错。
 
 遵义市 zunyi
 

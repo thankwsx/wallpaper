@@ -6,7 +6,9 @@
 
 贵州省官方网站 http://www.guizhou.gov.cn/
 
-贵阳市 guiyang
+贵阳市 guiyang 2021-07-05 甲秀楼 https://commons.wikimedia.org/wiki/File:%E7%94%B2%E7%A7%80%E6%A5%BC_-_Jiaxiu_Pavilion_-_2015.07_-_panoramio.jpg
+
+> 夜郎国的典故甚是有趣，贵阳最有名的居然就是一个巨石上建成的小楼——甲秀楼？也不是千年古迹，也不甚巍峨。
 
 遵义市 zunyi
 

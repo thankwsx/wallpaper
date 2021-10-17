@@ -1,0 +1,40 @@
+# yunnan
+
+http://www.yn.gov.cn/
+
+云南简称“滇”或“云”，有“彩云之南”的美称。全省东西最大横距864.9千米，南北最大横距990千米，总面积39.4万平方千米，占全国陆地总面积的4.1%，居全国第8位。全省辖16个州（市）、129个县（市、区）。
+
+昆明市 kunming 2021-10-17 石林 https://m.wangyetuku.com/bizhitupian/diannaobizhi/42601.html
+
+> 昆明历史比较久，是西南最大的门户，近代史上也起过突出的作用。景点比较多，这里我选择了石林，很有特色，景点有特色，结合阿诗玛的传说，人文上也很有特色，值得一去。
+
+昭通市 zhaotong
+
+曲靖市 qujing
+
+玉溪市 yuxi
+
+保山市 baoshan
+
+楚雄州 chuxiong
+
+红河州 honghe
+
+文山州 wenshan
+
+普洱市 puer
+
+西双版纳州 xishuangbanna
+
+大理州 dali
+
+德宏州 dehong
+
+丽江市 lijiang
+
+怒江州 nujiang
+
+迪庆州 diqing
+
+临沧市 lincang
+

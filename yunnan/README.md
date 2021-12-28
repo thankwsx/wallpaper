@@ -1,3 +1,7 @@
+---
+typora-root-url: ../../wallpaper
+---
+
 # yunnan
 
 http://www.yn.gov.cn/
@@ -19,6 +23,8 @@ http://www.yn.gov.cn/
 玉溪市 yuxi 2021-12-28 哀牢山 http://www.ifuun.com/a2017662744202/
 
 > 前不久4名勘探队员失温死亡事件，使得哀牢山进入大众视野。玉溪除了出产全国知名的烟之外，还有极富特色的哈尼梯田。
+
+![yuxi](/yunnan/yuxi.jpg)
 
 保山市 baoshan
 

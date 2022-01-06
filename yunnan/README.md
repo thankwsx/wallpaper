@@ -26,7 +26,11 @@ http://www.yn.gov.cn/
 
 ![yuxi](/yunnan/yuxi.jpg)
 
-保山市 baoshan
+保山市 baoshan 2022-01-06 大小空山 https://www.uulucky.com/show-5228887.html
+
+> 保山其实名气好像没有腾冲那么大，腾冲的热气球项目还是超出我的预期的。大小空山，两个死火山，也算国内比较独特的地方了。还有纯正的硫磺温泉，值得一去。
+
+![baoshan](/yunnan/baoshan.jpeg)
 
 楚雄州 chuxiong
 

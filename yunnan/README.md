@@ -40,7 +40,7 @@ http://www.yn.gov.cn/
 
 ![baoshan](/yunnan/baoshan.jpeg)
 
-楚雄州 chuxiong 元谋土林 https://www.xuehua.us/a/5eb6900286ec4d1abb713629
+楚雄州 chuxiong 2022-01-08 元谋土林 https://www.xuehua.us/a/5eb6900286ec4d1abb713629
 
 > 排在靠前的彝人古镇放弃了，相对人文，偏远地区的自然风貌还是更受偏爱，好像不是第一次了。元谋土林，和挨着的昆明石林，差异巨大，尤其在搜索过程中看了在这地方排的银河，更是感慨。土的森林，要去看看。
 

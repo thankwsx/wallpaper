@@ -32,6 +32,8 @@ http://www.hlj.gov.cn/
 
 > 黑土地，北大荒，友谊农场，浓浓的6、70年代风情。
 
+![双鸭山](shuangyashan.jpeg)
+
 伊春市 http://www.52daoyouci.com/know/jingdian/20171018_95373.html
 
 > 除了桂林有石林，最东北的黑龙江也有石林，汤旺河石林景区，有石头有松涛，不错不错。
@@ -56,4 +58,4 @@ http://www.hlj.gov.cn/
 
 > 大兴安岭，全国百姓都知道，大就一个字，随便一找就是一张美图。
 
-发现一篇不错的游戏，这人也是东北逛了一大圈 https://card.weibo.com/article/m/show/id/2309404319761415731846
+发现一篇不错的游记，这人也是东北逛了一大圈 https://card.weibo.com/article/m/show/id/2309404319761415731846

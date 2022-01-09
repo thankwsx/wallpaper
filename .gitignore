@@ -1,6 +1,6 @@
 .DS_store
-*.jfif
-**/*.jpg
-**/*.jpeg
-**/*.png
-**/*.gif
+# *.jfif
+# **/*.jpg
+# **/*.jpeg
+# **/*.png
+# **/*.gif

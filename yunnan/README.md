@@ -46,7 +46,11 @@ http://www.yn.gov.cn/
 
 ![chuxiong](/yunnan/chuxiong.png)
 
-红河州 honghe
+红河州 honghe 2022-01-09 哈尼梯田 https://h5.ifeng.com/c/vivoArticle/v002AH9QwtmCziMZgsgAQufF6EVk5oGJ4RCamyIGg4BXV9E__?showComments=0&isNews=1
+
+> 这里的梯田壮观，也慢慢进行旅游开发，元阳和建水离得也比较近，梯田在元阳，古城在建水。高德地图上放大都可以看到梯田。
+
+![红河](/yunnan/honghe.jpeg)
 
 文山州 wenshan
 

@@ -6,6 +6,8 @@
 
 河北省官方网站 http://www.hebei.gov.cn/
 
+![河北](hebei.jpg)
+
 顺序：
 
 石家庄 shijiazhuang 2020-08-22 西柏坡 http://www.abcwxh.com/travel/181956.html

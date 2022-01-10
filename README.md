@@ -28,7 +28,7 @@
 
 2021年6月21日 进入[贵州](./guizhou/README.md)
 
-2021年1月28日 进入[四川](./sichuang/README.md)
+2021年1月28日 进入[四川](./sichuan/README.md)
 
 2021年1月27日 进入重庆
 

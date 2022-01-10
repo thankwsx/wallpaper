@@ -24,55 +24,55 @@
 
 西藏
 
-2021年10月17日 进入云南
+2021年10月17日 进入[云南](./yunnan/README.md)
 
-2021年6月21日 进入贵州
+2021年6月21日 进入[贵州](./guizhou/README.md)
 
-2021年1月28日 进入四川
+2021年1月28日 进入[四川](./sichuang/README.md)
 
 2021年1月27日 进入重庆
 
 ![重庆](chongqing.jpg)
 
-12月30日 进入海南
+12月30日 进入[海南](./hainan/README.md)
 
-12月16日 进入广西
+12月16日 进入[广西](./guangxi/README.md)
 
-11月25日 进入广东
+11月25日 进入[广东](./guangdong/README.md)
 
-11月11日 进入湖南
+11月11日 进入[湖南](./hunan/README.md)
 
-10月25日 进入湖北
+10月25日 进入[湖北](./hubei/README.md)
 
-10月7日 进入河南
+10月7日 进入[河南](./henan/README.md)
 
-9月21日 进入山东
+9月21日 进入[山东](./shandong/README.md)
 
-9月10日 进入江西 
+9月10日 进入[江西](./jiangxi/README.md)
 
-9月9日 进入福建
+9月9日 进入[福建](./fujian/README.md)
 
-9月6日 进入安徽
+9月6日 进入[安徽](./anhui/README.md)
 
-9月4日 进入浙江
+9月4日 进入[浙江](./zhejiang/README.md)
 
-9月2日 进入江苏
+9月2日 进入[江苏](./jiangsu/README.md)
 
 9月2日 进入上海
 
 ![上海](shanghai.jpg)
 
-9月1日 进入黑龙江省
+9月1日 进入[黑龙江省](./heilongjiang/README.md)
 
-9月1日 进入吉林省
+9月1日 进入[吉林省](./jilin/README.md)
 
-8月27日 进入辽宁省
+8月27日 进入[辽宁省](./liaoning/README.md)
 
-8月24日 进入内蒙古自治区
+8月24日 进入[内蒙古自治区](./neimenggu/README.md)
 
-8月23日 进入山西省
+8月23日 进入[山西省](./shanxi/README.md)
 
-8月22日 进入河北省
+8月22日 进入[河北省](./hebei/README.md)
 
 8月21日 天津
 

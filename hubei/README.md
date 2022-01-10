@@ -4,70 +4,106 @@ http://www.hubei.gov.cn/
 
 湖北省位于中华人民共和国的中部,简称鄂。地跨东经108°21′42″～116°07′50″、北纬29°01′53″～33°6′47″。东邻安徽,南界江西、湖南,西连重庆,西北与陕西接壤,北与河南毗邻。东西长约740公里,南北宽约470公里。全省国土总面积18.59万平方公里,占全国总面积的1.94%。
 
+![湖北](hubei.jpg)
+
 武汉市 wuhan 2020-10-25 黄鹤楼 http://www.chaopinnews.com/articleid/39866.html
 
 > 本来想找个偏门——木兰天池，一个离市区有点远，真是后花园，另一个还是逃不过黄鹤楼的名气，虽然是现代建筑，移址重建，但是的确蔚为壮观，也是大武汉的一大名片。
+
+![武汉](wuhan.jpg)
 
 襄阳市 xiangyang 2020-10-26 襄阳城 https://kuaibao.qq.com/s/20180218A0O7ZE00?refer=spider
 
 > 襄阳，第一印象就是郭大侠，果然襄阳城的城墙是NB的。古色古香，北门锁钥。
 
+![襄阳](xiangyang.jpg)
+
 宜昌市 yichang 2020-10-27 三峡大坝 https://www.ettoday.net/news/20200624/1745115.htm
 
 > 宜昌的三峡人家的水并不是清澈见底的，三峡大坝作为万年大计，不得不单独拎出来说说。
+
+![宜昌](yichang.jpg)
 
 黄石市 huangshi 2020-10-28 黄石国家矿山公园 http://www.cunman.com/new/1d07559936804b0887ad53ab766b6721
 
 > 原来我们国家连西塞山都有两个，景点偏小了。抚顺的矿山比起这个来面积应该是大不少，不过深度还是黄石的深一点，铁矿为主，旁边还有大冶。
 
+![黄石](huangshi.jpg)
+
 十堰市 shiyan 2020-10-29 武当山 https://www.latiaozixun.net/20200308/4B6D78602B00EACCD219871ABC6EECB5-1.html
 
 > 武林泰斗，少林武当，武当原来就在十堰，一直以为十堰只是一个汽车城，原来金老先生的武当也在此地，不过门票230有点小贵啊。
+
+![十堰](shiyan.jpeg)
 
 荆州市 jingzhou 2020-10-30 荆州城墙 https://epaper.hubeidaily.net/pc/content/202010/12/content_57868.html
 
 > 刚从襄阳过来没多久，又走到更古远的荆州，三国关羽的驻地所在，城墙保存完好程度全国排名靠前。
 
+![荆州](jingzhou.jpg)
+
 荆门市 jingmen 2020-10-31 明显陵 https://you.ctrip.com/sight/zhongxiang863/17908-dianping155644969.html
 
 > 走神了，嘉靖帝在荆门长大，因为明11帝武宗无子嗣，于是传皇位给嘉靖，明世宗。显陵是嘉靖登基之后给他父亲改造的皇陵，还引起了大礼议事件。
+
+![荆门](jingmen.jpg)
 
 鄂州市 ezhou 2020-11-01 莲花山 https://3g.163.com/news/article/FOU06I1205373PJ6.html
 
 > 鄂州，古楚国的都城，湖北省简称的由来，莲花山碑林的建筑风格很是少见，网上图略少。
 
+![鄂州](ezhou.jpg)
+
 孝感市 xiaogan 2020-11-02 观音湖 http://bbs.zol.com.cn/dcbbs/d33970_13288.html
 
 > 全国唯一以孝命名的城市，董永卖身葬父，自然景色也不错，双峰山、观音湖，有山有水。
+
+![孝感](xiaogan.jpg)
 
 黄冈市 huanggang 2020-11-03 五祖寺 https://www.t248.com/picture/28650.html
 
 > 东坡赤壁，怀古。菩提本无树，何处惹尘埃。六祖慧能的奇妙际遇绝了。当然黄冈的红安、麻城等将军县也是很牛的。
 
+![黄冈](huanggang.jpg)
+
 咸宁市 xianning 2020-11-04 131工程 https://zh.m.wikipedia.org/zh-cn/131%E5%B7%A5%E7%A8%8B
 
 > 咸宁有赤壁古战场，号称是5A景区，不过都是后盖的建筑，131工程，可以抵御核弹袭击。131个房间。
+
+![咸宁](xianning.jpg)
 
 随州市 suizhou 2020-11-05 千年银杏谷 https://twgreatdaily.com/zh-my/pqsIn3MBURTf-Dn5LtWi.amp
 
 > 随州的曾侯乙编钟，举世闻名，不过我更倾向于选择一个自然风光，千年银杏谷就是一个漂亮的自然景观。
 
+![随州](suizhou.jpeg)
+
 恩施州 enshi 2020-11-06 腾龙洞 https://touch.travel.qunar.com/comment/5887844
 
 > 如此大的旱洞，亚洲第一，说50多公里长有点不可思议。据说景点比较坑，但是来都来了，花200块看个洞也算值了。
+
+![恩施](enshi.jpg)
 
 仙桃市 xiantao 2020-11-07 梦里水乡 http://www.hubei.gov.cn/hbfb/rdgz/ly/201912/t20191212_1757649.shtml
 
 > 这3个城市，都算是比较小的城市，找风景可没那么方便。仙桃的梦里水乡是个AAAA景区，池杉有万株以上，甚是壮观。
 
+![仙桃](xiantao.jpg)
+
 天门市 tianmen 2020-11-08 茶经楼 https://www.jianshu.com/p/006608e24eed
 
 > 天门南站距离仙桃比天门可近多了，茶圣陆羽的数千字茶经虽然不是在天门写的，但是出生地是在天门，所以天门有一个茶经楼。
+
+![天门](tianmen.jpg)
 
 潜江市 qianjiang 2020-11-09 返湾湖 https://k.sina.cn/article_1840551510_6db4965602700mjka.html?from=sports&subch=osport
 
 > 潜江市的知名只有曹禺，然后华章台，曹禺故居有点太小了，华章台只剩空空的地基，返湾湖还算稍微好点，还举行过马拉松比赛。
 
+![潜江](qianjiang.jpg)
+
 神农架林区 shennongjia 2020-11-10 神农架 http://bbs.lvye.cn/thread-2568543-1-1.html
 
 > 神农架是一个原始森林，原生态，还有野人的传说，小时候就听说过，一直没找到过。不知道何时能去一探究竟。
+
+![神农架](shennongjia.jpg)

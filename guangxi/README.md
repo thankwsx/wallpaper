@@ -4,58 +4,88 @@ http://www.gxzf.gov.cn/
 
 广西壮族自治区简称桂，地处祖国南疆，位于东经104°28′-112°04′，北纬20°54′-26°24′之间，北回归线横贯全区中部。广西土地总面积23.76万平方公里，占全国土地总面积约2.5%，居各省、自治区、直辖市第九位; 大陆海岸线总长1595公里，沿海港口资源、海洋生物资源、滨海旅游资源丰富。广西有壮、汉、瑶、苗、侗、仫佬、毛南、回、京、彝、水、仡佬等12个世居民族。2012年末全区总人口5240万人，少数民族人口为1988万人，占37.94%，壮族人口为1685万人，占32.16%。广西是中国唯一临海的少数民族自治区、西部唯一的沿海地区，是中国对外开放、走向东盟、走向世界的重要门户和前沿，是大西南最便捷的出海口。
 
+![广西](guangxi.jpg)
+
 南宁市 nanning 2020-12-16 青秀山 http://www.cunman.com/new/823ec113f6714dea885ea6fa56025f81
 
 > 半城绿树半城楼的南宁，真的很美，青秀山是南宁唯一的5A景点就更美了，不是那种雄奇的美，而是“清秀”的美。
+
+![南宁](nanning.jpg)
 
 柳州市 liuzhou 2020-12-17 龙潭公园 http://bbs.zol.com.cn/dcbbs/d34007_330.html
 
 > 最快速选择一个墙纸，柳州龙潭公园，第一感觉，广西真是好地方，风景优美。
 
+![柳州](liuzhou.jpg)
+
 桂林市 guilin 2020-12-18 桂林山水 https://k.sina.cn/article_6427087312_17f1591d000100ifv9.html
 
 > 桂林山水，无话可说，一生一定要去的一个地方。
+
+![桂林](guilin.jpg)
 
 梧州市 wuzhou 2020-12-19 龙母庙 https://bbs.dji.com/thread-212118-1-1.html
 
 > 据称龙母是有真人存在的，秦以来历代中原帝王都会恩赏，大约是百越的一个大首领。后来被神话。
 
+![梧州](wuzhou.jpg)
+
 北海市 beihai 2020-12-20 涠洲岛 http://www.wzdnwhjjd.com/information-68-72-138.html
 
 > 北海，孔融，没想到是在中国大陆的最南端，涠洲岛，中国最大、最年轻的火山岛。北海还有一个银滩，也有意思。
+
+![北海](beihai.jpg)
 
 防城港市 fangchenggang 2020-12-21 北部湾 http://k.sina.com.cn/article_7203183098_1ad57d9fa00100h31u.html?cre=tianyi&mod=pcpager_focus&loc=9&r=9&rfunc=100&tj=none&tr=9
 
 > 北海、钦州、防城港，广西三座沿海的城市。北海知名度最高，其实另外两个风景不输北海，北部湾的景色值得夏天去玩玩。
 
+![防城港](fangchenggang.jpg)
+
 钦州市 qinzhou 2020-12-22 三娘湾 http://www.chinanews.se/index.php/content/index/pid/77/cid/3571.html
 
 > 钦州，和我有着不解之缘，三娘湾这个名字也很有个性，还是白海豚的故乡。海滩风景也不赖。
+
+![钦州](qinzhou.jpeg)
 
 贵港市 guigang 2020-12-23 西山 https://hk.trip.com/travel-guide/guiping/west-mountain-scenic-area-81020/
 
 > 神奇的乳泉，据说会不定期的喷出乳白色的泉水，很是神奇，西山不在贵港市区，在下面的桂平县，其人颇有争抢之势。
 
+![贵港](guigang.jpg)
+
 玉林市 yulin 2020-12-24 云天文化城 https://k.sina.cn/article_1197495084_p4760532c02700h16z.html
 
 > 这种建筑不能错过，玉林不是玉龙雪山，玉林是有狗肉节争议的地方。这个文化城是一个后建的建筑符号，集种种大成。
+
+![玉林](yulin.jpg)
 
 百色市 baise 2020-12-25 鹅泉 https://www.sohu.com/a/369906688_100315
 
 > 小平同志领导的百色起义发生地。鹅泉风景优美。
 
+![百色](baise.jpeg)
+
 贺州市 hezhou 2020-12-26 黄姚古镇 http://travel.sina.com.cn/domestic/pages/2017-11-29/detail-ifyphxwa7028337.shtml
 
 > 北方古镇，南方古镇，更南方的古镇，贺州老使我不自觉想到西牛贺洲。也许吴承恩也来过此地？黄姚古镇，不知道是不是真的没有商业包装古色古香，原生态还是稀有的。
+
+![贺州](hezhou.jpg)
 
 河池市 hechi 2020-12-27 小七孔 https://www.123huodong.com/dongtai/show-24178.html
 
 > 荔波小七孔，看水，越发喜欢广西的风景，知名度不高大概因为是古时的蛮荒之地，其实山青水秀。
 
+![河池](hechi.jpg)
+
 来宾市 laibin 2020-12-28 八仙潭 https://www.sohu.com/a/312788782_99900956
 
 > 广西唯一天池，也是比较超出我想象的。一年四季景色变幻。
 
+![来宾](laibin.jpeg)
+
 崇左市 chongzuo 2020-12-29 花山岩画 http://travel.china.com.cn/txt/2018-04/21/content_50934284_9.htm
 
 > 神秘的悬崖上的敦煌，2500年前的古人，特别喜欢在各种崖壁上涂涂画画。
+
+![崇左](chongzuo.jpeg)

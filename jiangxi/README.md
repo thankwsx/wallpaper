@@ -6,50 +6,74 @@ http://www.jx.gov.cn
 
 ![江西](jiangxi.jpg)
 
-南昌市 http://www.lvmama.com/lvyou/photo/d-nanchang146.html
+南昌市 nanchang 2020-09-11 滕王阁 http://www.lvmama.com/lvyou/photo/d-nanchang146.html
 
 > 除了南昌起义发生地，滕王阁应该算是南昌名气最大的景点了，序我是不会背。
 
-九江市 https://www.aihuazhu.com/traveldetail/5b56ede43dc3b35b9002e2e9
+![南昌](nanchang.jpg)
+
+九江市 jiujiang 2020-09-12 庐山  https://www.aihuazhu.com/traveldetail/5b56ede43dc3b35b9002e2e9
 
 > 庐山是九江的，也是中国的。庐山可是蒋改十和主席都喜欢的地方，风景应该是很美的，可惜我还没去过。
 
-景德镇市 http://www.ucxinwen.com/image/10972951747.html
+![九江](jiujiang.jpg)
+
+景德镇市 jingdezhen 2020-09-13 古窑博览区 http://www.ucxinwen.com/image/10972951747.html
 
 > 景德镇，石家庄，一个镇子，一个庄子。不过景德镇可是有历史渊源的，宋真宗有四年年号为景德，景德还是瓷器的代名词，中国都以瓷器扬名海外。图为古窑博览区。
 
-萍乡市 http://www.ucxinwen.com/image/19531662415.html
+![景德镇](jingdezhen.jpg)
+
+萍乡市 pingxiang 2020-09-14 武功山 http://www.ucxinwen.com/image/19531662415.html
 
 > 今天查找萍乡的资料，找到了百科地理组，犹如打开一扇新大门，到底是专业的志愿者，资料还是比较翔实的，萍乡是工人运动发源地，武功山景色美绝。
 
-新余市 https://m.jxnews.com.cn/jx/system/2017/09/14/016398687.shtml
+![萍乡](pingxiang.jpg)
+
+新余市 xinyu 2020-09-15 仙女湖 https://m.jxnews.com.cn/jx/system/2017/09/14/016398687.shtml
 
 > 江西不同的城市，大小差距也太悬殊了。萍乡、新余都很小，上饶、赣州、吉安什么的都很大，新余有个仙女湖，相传是七仙女下凡的地方。
 
-上饶市 https://kuaibao.qq.com/s/20200324A0GUGQ00?refer=spider
+![新余](xinyu.jpg)
+
+上饶市 shangrao 2020-09-16 婺源 https://kuaibao.qq.com/s/20200324A0GUGQ00?refer=spider
 
 > 上饶地形比较其他，像一个纺锤，中间细，两头大，婺源是上饶最北面的一个县，非常漂亮，女神都喜欢。
 
-鹰潭市 https://www.sohu.com/a/191601493_291951
+![上饶](shangrao.jpeg)
+
+鹰潭市 yingtan 2020-09-17 龙虎山 https://www.sohu.com/a/191601493_291951
 
 > 鹰潭以铜矿著称，可是龙虎山的丹霞地貌还是很有特色的。一个景德镇、一个鹰潭把上饶挤到了角落。
 
-吉安市 https://k.sina.cn/article_2643734600_p9d94304800100luia.html
+![鹰潭](yingtan.jpeg)
+
+吉安市 jian 2020-09-18 井冈山 https://k.sina.cn/article_2643734600_p9d94304800100luia.html
 
 > 井冈山，红色根据地，教育基地。
 
-赣州市 http://k.sina.com.cn/article_2643734600_p9d94304800100hae9.html?from=news&subch=photo
+![吉安](jian.jpg)
+
+赣州市 ganzhou 2020-09-19 通天岩 http://k.sina.com.cn/article_2643734600_p9d94304800100hae9.html?from=news&subch=photo
 
 > 赣州是一个很大的地方，名气很大的瑞金也只是赣州下面的一个市。江西的红色旅游资源真的多，赣州市区旁边有个通天岩，还是有些许文化底蕴的。
 
-抚州市 https://www.sohu.com/a/127678810_119047
+![赣州](ganzhou.jpg)
+
+抚州市 fuzhou 2020-09-20 大觉山 https://www.sohu.com/a/127678810_119047
 
 > 抚州历史文化名人不少，王安石、汤显祖，不过这个唯一的5A景区大觉山更吸引我一点。
 
-宜春市 http://www.ucxinwen.com/image/9821415702.html
+![抚州](fuzhou.jpg)
+
+宜春市 yichun 2020-09-20 明月山 http://www.ucxinwen.com/image/9821415702.html
 
 > 明月山温泉，看起来很不错的样子，周末也会爆满，就是交通不甚方便，开车太远。
 
-赣江新区 https://bbs.dji.com/thread-178254-1-1.html
+![宜春](yichun.jpg)
+
+赣江新区 ganjiang 2020-09-20 托林湖 https://bbs.dji.com/thread-178254-1-1.html
 
 > 一个千岛湖一样的地方，虽然我也没去过千岛湖。拓林湖，现在叫庐山西海，其实离庐山不近，据说还没开发好，旅游节奏还没起来。
+
+![赣江](ganjiangxinqu.jpg)

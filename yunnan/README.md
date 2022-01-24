@@ -52,7 +52,11 @@ http://www.yn.gov.cn/
 
 ![红河](/yunnan/honghe.jpeg)
 
-文山州 wenshan
+文山州 wenshan 2022-01-24 普者黑 http://www.mafengwo.cn/gonglve/ziyouxing/272569.html
+
+> 文山也是位于祖国的边疆，土司的府衙也是拥有着很久的历史的，上过《爸爸去哪儿的》的景点普者黑也是世外桃源一样的所在。
+
+![文山](/yunnan/wenshan.jpeg)
 
 普洱市 puer
 

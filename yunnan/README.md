@@ -58,7 +58,11 @@ http://www.yn.gov.cn/
 
 ![文山](/yunnan/wenshan.jpeg)
 
-普洱市 puer
+普洱市 puer 2022-01-25 茶马古城 https://www.gushiciku.cn/dl/0gWuY/zh-tw
+
+> 普洱，2007年才改的名字，之前是叫思茅。因为是茶叶集散地，所以后来从这里出去的茶叶都叫普洱茶。城市以茶叶名称命名也算是少见了。
+
+![普洱](/yunnan/puer.jpeg)
 
 西双版纳州 xishuangbanna
 

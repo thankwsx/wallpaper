@@ -64,7 +64,11 @@ http://www.yn.gov.cn/
 
 ![普洱](/yunnan/puer.jpeg)
 
-西双版纳州 xishuangbanna
+西双版纳州 xishuangbanna 2022-01-28 大金塔 https://www.sohu.com/a/445761896_100195554
+
+> 久闻大名，西双版纳位于边境，挨着老挝和缅甸。异域风味浓厚，之前一直以为仅仅是热带风格，傣族人口众多。寺庙很多，大金塔就是极具特色的一座。
+
+![西双版纳](/yunnan/xishuangbanna.jpeg)
 
 大理州 dali
 

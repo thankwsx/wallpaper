@@ -70,7 +70,11 @@ http://www.yn.gov.cn/
 
 ![西双版纳](/yunnan/xishuangbanna.jpeg)
 
-大理州 dali
+大理州 dali 2022-01-28 苍山洱海 https://k.sina.cn/article_1766926215_p6951278702700ld4o.html
+
+> 因为段誉，熟拈大理，感觉就是一个会六脉神剑的帝王世家。大概了解了一下，唐宋时期，大理国维持了云南一个统一的政治实体。苍山洱海，很风花雪月的地名。
+
+![大理](/yunnan/dali.jpeg)
 
 德宏州 dehong
 

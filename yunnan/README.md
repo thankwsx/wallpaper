@@ -76,7 +76,11 @@ http://www.yn.gov.cn/
 
 ![大理](/yunnan/dali.jpeg)
 
-德宏州 dehong
+德宏州 dehong 2022-02-18 勐焕银塔 https://m.ctrip.com/webapp/you/tripshoot/paipai/detail/detail?articleId=7956701
+
+> 去年有一段时间因为疫情的原因，瑞丽进入人们的视野。德宏州首府有金银两塔，金塔因为之前西双版纳选取过，这里就选择的银塔作为代表了。
+
+![德宏](/yunnan/dehong.jpeg)
 
 丽江市 lijiang
 

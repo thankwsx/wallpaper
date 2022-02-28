@@ -82,7 +82,11 @@ http://www.yn.gov.cn/
 
 ![德宏](/yunnan/dehong.jpeg)
 
-丽江市 lijiang
+丽江市 lijiang 2022-02-28 泸沽湖 https://zhuanlan.zhihu.com/p/102100163
+
+> 泸沽收费站，泸沽镇，曾经我最远到过这里。其实这是四川冕宁的，今天一看，果然泸沽湖是云南和四川搭界的地方。而且泸沽湖离泸沽镇非常遥远。离丽江古城都需要3个多小时车程。听说还有走婚的传统，也算少数民族一种古老的风俗吧。
+
+![丽江](/yunnan/lijiang.jpeg)
 
 怒江州 nujiang
 

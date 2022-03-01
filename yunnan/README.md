@@ -88,7 +88,11 @@ http://www.yn.gov.cn/
 
 ![丽江](/yunnan/lijiang.jpeg)
 
-怒江州 nujiang
+怒江州 nujiang 2022-03-01 高黎贡山自然保护区 https://inf.news/zh-my/travel/9be3c213615144cb09e4e37ea71c3c8d.html
+
+> 被称为自然的基因库，里面的物种多种多样，还有不对外开放的核心保护区。位于中缅边界附近，有生之年可以去看看系列。最好是等娃大一点。
+
+![怒江](/yunnan/nujiang.jpeg)
 
 迪庆州 diqing
 

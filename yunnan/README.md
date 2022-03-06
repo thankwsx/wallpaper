@@ -94,7 +94,11 @@ http://www.yn.gov.cn/
 
 ![怒江](/yunnan/nujiang.jpeg)
 
-迪庆州 diqing
+迪庆州 diqing 2022-03-06 卡瓦博格 https://zh.wikipedia.org/wiki/%E5%8D%A1%E7%93%A6%E6%A0%BC%E5%8D%9A%E5%B3%B0
+
+> 梅里雪山的卡瓦博格峰，国内唯一一座没有被人类登顶过的山峰。而且现在已经禁止登山行为了。91年的事故还有种种奇怪的传闻。当作大自然的处女地吧。
+
+![卡瓦博格](/yunnan/diqing.jpeg)
 
 临沧市 lincang
 

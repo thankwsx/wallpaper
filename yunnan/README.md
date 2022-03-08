@@ -100,5 +100,9 @@ http://www.yn.gov.cn/
 
 ![卡瓦博格](/yunnan/diqing.jpeg)
 
-临沧市 lincang
+临沧市 lincang 2022-03-08 沧源崖画 https://www.baike.com/wiki/%E6%B2%A7%E6%BA%90%E5%B2%A9%E7%94%BB?view_id=2axnocyz9hc000
+
+> 中国最古老的崖画，一直觉得很神奇，3000多年前的人怎么想到弄出这种涂料，且这么会找地方去画。临沧的旅游资源很丰富，且未经太多开发，值得一去。
+
+![临沧](/yunnan/lincang.jpeg)
 

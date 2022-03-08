@@ -106,3 +106,7 @@ http://www.yn.gov.cn/
 
 ![临沧](/yunnan/lincang.jpeg)
 
+另外两个参考网页： 
+
+1. [https://www.sohu.com/a/509326724_611440](https://www.sohu.com/a/509326724_611440)
+2. [http://travel.qunar.com/travelbook/note/7026748](http://travel.qunar.com/travelbook/note/7026748)

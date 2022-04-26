@@ -12,7 +12,11 @@ https://www.xizang.gov.cn/
 
 ![拉萨](lasa.jpeg)
 
-昌都市
+昌都市 changdu 2022-04-26 然乌湖 http://www.mafengwo.cn/i/8869634.html
+
+> 本来想找个神山的图片，实在找不到，碰巧找到一篇骑行游记，很赞。80天6000km，昌都的然乌湖被作者重点标记了，景色果然很美。
+
+![昌都](changdu.jpeg)
 
 山南市
 

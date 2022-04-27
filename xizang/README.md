@@ -30,7 +30,9 @@ https://www.xizang.gov.cn/
 
 ![日喀则](rikaze.jpeg)
 
-林芝市
+林芝市 linzhi 2022-04-27 雅鲁藏布大峡谷 https://chinadialogue.net/zh/6/73477/
+
+> 林芝的海拔落差还是挺大的，雅鲁藏布大峡谷最后一片净土，如果哪天建成国家公园了，非常一定要去。
 
 那曲市
 

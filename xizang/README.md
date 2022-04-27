@@ -18,9 +18,17 @@ https://www.xizang.gov.cn/
 
 ![昌都](changdu.jpeg)
 
-山南市
+山南市 shannan 2022-04-26 桑耶寺 https://k.sina.com.cn/article_2192556155_p82afc07b02700jpae.html#p=2
 
-日喀则市
+> 西藏第一寺，佛法僧俱全，又别称“三样寺”，相传是西藏第一座寺院，低调的震撼。
+
+![山南](shannan.jpeg)
+
+日喀则市 rikaze 2022-04-27 珠穆朗玛 https://www.sohu.com/a/164821091_393286
+
+> 这辈子不可能登顶了，能去珠峰北大营近距离看看也是不错的体验。绒布寺南面一点的营地，去海拔最高邮局寄一封明信片回去也是不错。
+
+![日喀则](rikaze.jpeg)
 
 林芝市
 

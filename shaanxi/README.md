@@ -22,7 +22,11 @@ www.shaanxi.gov.cn
 
 ![西安](xian.jpeg)
 
-宝鸡市
+宝鸡市 baoji 2022-05-12 太白山 http://www.mafengwo.cn/travel-scenic-spot/mafengwo/14369.html
+
+> 中国内陆最高的森林公园，3500多米。不过查资料的时候发现2021年6月的时候发生过一起旅游车翻车事故，有些不淡定了。这种情况目前为止我还没怎么遇到过。去不去到时候看情况吧。
+
+![宝鸡](baoji.jpeg)
 
 咸阳市
 

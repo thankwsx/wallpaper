@@ -28,7 +28,11 @@ www.shaanxi.gov.cn
 
 ![宝鸡](baoji.jpeg)
 
-咸阳市
+咸阳市 xianyang 2022-05-29 乾陵 http://www.ymgushi.com/wuzetian/194.html
+
+> 咸阳，秦唐古都，乾陵，又是以一代女皇武则天而闻名，未遭大规模开挖，比较完整，六十一番臣无头石像和无字碑留下了千古谜团。
+
+![咸阳](xianyang.jpeg)
 
 铜川市
 

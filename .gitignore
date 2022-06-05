@@ -1,6 +1,9 @@
 .DS_store
-# *.jfif
+**/*.jfif
 # **/*.jpg
 # **/*.jpeg
 # **/*.png
 # **/*.gif
+node_modules/
+aapp/
+scripts/

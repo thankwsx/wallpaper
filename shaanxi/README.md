@@ -34,7 +34,11 @@ www.shaanxi.gov.cn
 
 ![咸阳](xianyang.jpeg)
 
-铜川市
+铜川市 tongchuan 2022-06-05 药王山 http://m.cnwest.com/sxxw/a/2022/01/06/20218103.html
+
+> 铜川，西安和延安之间的必经之道，药王孙思邈的故乡，药王山便是当地纪念他所建，孙思邈的医术和医德的确甚高。农历每年的二月初二还有药王庙会。
+
+![铜川](tongchuan.jpeg)
 
 渭南市
 

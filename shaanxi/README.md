@@ -46,9 +46,17 @@ www.shaanxi.gov.cn
 
 ![渭南](weinan.jpeg)
 
-延安市
+延安市 yanan 2022-06-18 宝塔山 http://www.lvmama.com/lvyou/photo/d-baotashan102795.html
 
-榆林市
+> 没什么好多说的，中国人都知道。
+
+![延安](yanan.jpg)
+
+榆林市 yulin 2022-06-18 镇北台 https://m.toutiao.com/search?keyword=%E9%95%87%E5%8C%97%E5%8F%B0&pd=synthesis&source=knowledge&in_ogs=&api_param=%7B%22node_id%22%3A%22969256%22%7D&offset=10&start_index=10&search_id=202205291825520101310570171747895F
+
+> 陕西最北，长城第一台。
+
+![榆林](yulin.jpg)
 
 汉中市
 

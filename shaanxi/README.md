@@ -64,7 +64,11 @@ www.shaanxi.gov.cn
 
 ![汉中](hanzhong.jpeg)
 
-安康市
+安康市 ankang 2022-07-10 瀛湖 http://www.mafengwo.cn/gonglve/ziyouxing/406072.html
+
+> 叫这个名字以为和秦朝有什么关联呢。实际好像现在用的比较多的名字是安康水库，据说有陕西最大的水电站。不过半夜泄洪这事，的确多少有些不耻。
+
+![安康](ankang.jpeg)
 
 商洛市
 

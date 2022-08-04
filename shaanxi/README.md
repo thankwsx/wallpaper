@@ -70,7 +70,11 @@ www.shaanxi.gov.cn
 
 ![安康](ankang.jpeg)
 
-商洛市
+商洛市 shangluo 2022-08-04 天竺山 https://www.csjjx.com/zhihui/103453.html
+
+> 厦门有一个天竺山，陕西也有一个。此山名天竺，但又是一个道教圣地，西北小武当。海拔2000多米。可以俯瞰山北面的县城。景色宜人。
+
+![商洛](shangluo.png)
 
 杨凌示范区
 

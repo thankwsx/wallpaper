@@ -76,5 +76,7 @@ www.shaanxi.gov.cn
 
 ![商洛](shangluo.png)
 
-杨凌示范区
+杨凌示范区 yangling 2022-08-05 昆虫馆 https://hk.trip.com/travel-guide/attraction/xianyang/northwest-a-and-f-university-north-campus-insect-museum-13811477/
+
+> 本来准备删去不写的，后来发现一个神奇的地方，昆虫馆，亚洲最大，有机会带老二去看看。
 

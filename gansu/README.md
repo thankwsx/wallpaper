@@ -8,7 +8,11 @@ http://www.gansu.gov.cn/
 
 ![甘肃](gansu.jpeg)
 
-兰州市
+兰州市 lanzhou 2022-08-05 水墨丹霞 https://i.ifeng.com/c/89XAXm6YuRw
+
+> 兰州，是西北第三大城市，应该是仅次于西安和乌市吧。一直在听说张掖丹霞，不过这个兰州的水墨丹霞也不错，看起来。狭长的城市，黄河穿城而过。
+
+![兰州](lanzhou.jpeg)
 
 嘉峪关市
 

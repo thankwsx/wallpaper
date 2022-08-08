@@ -14,7 +14,11 @@ http://www.gansu.gov.cn/
 
 ![兰州](lanzhou.jpeg)
 
-嘉峪关市
+嘉峪关市 jiayuguan 2022-08-08 嘉峪关 https://www.haohua.com/jiayuguanxianhua/info.html
+
+> 嘉峪关，四个不设区的地级市之一。万里长城的最西端。傲立在大漠之上，充满了沧桑。人口只有二十多万，被酒泉市包着，但是地理位置确是冷兵器时代的王者。
+
+![嘉峪关](jiayuguan.jpeg)
 
 金昌市
 

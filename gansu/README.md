@@ -20,7 +20,11 @@ http://www.gansu.gov.cn/
 
 ![嘉峪关](jiayuguan.jpeg)
 
-金昌市
+金昌市 jinchang 2022-08-10 火星1号基地 https://gs.ifeng.com/c/7zDhnzx9R8S
+
+> 一个神秘的古罗马传说，有点假了，还是这个火星基地有点意思。
+
+![金昌](jinchang.jpeg)
 
 酒泉市
 

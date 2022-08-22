@@ -26,7 +26,11 @@ http://www.gansu.gov.cn/
 
 ![金昌](jinchang.jpeg)
 
-酒泉市
+酒泉市 jiuquan 2022-08-22 莫高窟 https://ls.chiculture.org.hk/tc/passing-the-torch/369
+
+> 酒泉的名胜实在太多了，莫高窟相比月牙泉、鸣沙山应该价值更大，更有名声。艺术价值极高，单独一个窟都有很高的鉴赏价值。
+
+![酒泉](jiuquan.jpeg)
 
 张掖市
 

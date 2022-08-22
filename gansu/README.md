@@ -32,7 +32,11 @@ http://www.gansu.gov.cn/
 
 ![酒泉](jiuquan.jpeg)
 
-张掖市
+张掖市 zhangye 2022-08-22 平山湖大峡谷 http://k.sina.com.cn/article_2133856620_p7f30116c02700icg2.html?from=travel
+
+> 名为湖，其实一点水也没有，要去玩也得准备充足的干粮和水。身处数亿年之久的岩石断层中，体会人类的渺小。
+
+![张掖](zhangye.jpeg)
 
 武威市
 

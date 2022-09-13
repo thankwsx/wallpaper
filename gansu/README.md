@@ -44,7 +44,11 @@ http://www.gansu.gov.cn/
 
 ![武威](wuwei.jpeg)
 
-白银市
+白银市 baiyin 2022-09-13 永泰古城 https://www.zhangzs.com/271984.html
+
+> 白银，产有色金属。永泰古城，是景泰县，和中卫是挨着的，都在大沙漠边上。即将消失的400年前的原生态明朝古城，曾驻军2000人以上。
+
+![白银](baiyin.jpeg)
 
 天水市
 

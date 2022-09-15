@@ -50,7 +50,9 @@ http://www.gansu.gov.cn/
 
 ![白银](baiyin.jpeg)
 
-天水市
+天水市 tianshui 麦积山石窟 2022-09-15 http://www.cntgol.com/Announcement/2016/0224/42171.shtml
+
+> 数代匠人，上千年的不休止的工作，造就了巍巍大观。千年前的色彩流传至今，180看一个特窟贵吗？麦垛一样的山上数千雕塑泥塑，值得一游。
 
 平凉市
 

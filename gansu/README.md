@@ -56,7 +56,11 @@ http://www.gansu.gov.cn/
 
 ![天水](tianshui.jpeg)
 
-平凉市
+平凉市 pingliang 崆峒山 2022-09-17 http://www.travelchina.org.cn/sitefiles/gjly_zh/html/meijing/208.shtml
+
+> 有点草率了，没有太多了解平凉，直接一看，原来崆峒（tong）派就在这里啊，就这了。
+
+![平凉](pingliang.jpg)
 
 庆阳市
 

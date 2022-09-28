@@ -62,7 +62,11 @@ http://www.gansu.gov.cn/
 
 ![平凉](pingliang.jpg)
 
-庆阳市
+庆阳市 qingyang 周祖陵 2022-09-28 https://www.mafengwo.cn/gonglve/ziyouxing/313264.html
+
+> 原以为是哪个周氏祖先，竟是周朝的先祖，农耕文化另一个鼎盛朝代周朝的发源地就在这陇东大塬之上。来到此地，直追上古。
+
+![庆阳](qingyang.jpeg)
 
 定西市
 

@@ -74,8 +74,18 @@ http://www.gansu.gov.cn/
 
 ![定西](dingxi.jpeg)
 
-陇南市
+陇南市 longnan 官鹅沟 2022-10-05 https://www.gegdjq.com/web/zjge/rywhdetail/id/619.html
+
+> 号称西北小九寨，在印象当中的西北，黄沙为主色调，能有这番山水，的确也算不俗了。
+
+![陇南](longnan.jpeg)
 
 甘南州
 
-临夏州
+![甘南]()
+
+临夏州 linxia 炳灵寺 2022-10-05 https://www.sgss8.com/tpdq/12201149/
+
+> 甘肃的石窟真xxx多，炳灵寺的石窟大佛和旁边黄色版本的桂林山水，独特的风味。感觉比八坊十三巷还有价值。
+
+![临夏](linxia.jpeg)

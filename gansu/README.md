@@ -80,9 +80,11 @@ http://www.gansu.gov.cn/
 
 ![陇南](longnan.jpeg)
 
-甘南州
+甘南州 gannan 仙女滩 2022-10-05 https://www.sohu.com/a/487024878_100195554
 
-![甘南]()
+> 山里的秘境，美不胜收，因为还没有被大量开发，所以既有少游客的美，也有与世隔绝的不变。扎尕那的明珠，仙女滩。
+
+![甘南](gannan.jpeg)
 
 临夏州 linxia 炳灵寺 2022-10-05 https://www.sgss8.com/tpdq/12201149/
 

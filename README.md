@@ -18,7 +18,7 @@
 
 青海
 
-2022年8月5日 进入甘肃
+2022年8月5日 进入[甘肃](./gansu/README.md)
 
 2022年5月12日 进入[陕西](./shaanxi/README.md)
 
@@ -34,53 +34,53 @@
 
 ![重庆](chongqing.jpg)
 
-12月30日 进入[海南](./hainan/README.md)
+2020年12月30日 进入[海南](./hainan/README.md)
 
-12月16日 进入[广西](./guangxi/README.md)
+2020年12月16日 进入[广西](./guangxi/README.md)
 
-11月25日 进入[广东](./guangdong/README.md)
+2020年11月25日 进入[广东](./guangdong/README.md)
 
-11月11日 进入[湖南](./hunan/README.md)
+2020年11月11日 进入[湖南](./hunan/README.md)
 
-10月25日 进入[湖北](./hubei/README.md)
+2020年10月25日 进入[湖北](./hubei/README.md)
 
-10月7日 进入[河南](./henan/README.md)
+2020年10月7日 进入[河南](./henan/README.md)
 
-9月21日 进入[山东](./shandong/README.md)
+2020年9月21日 进入[山东](./shandong/README.md)
 
-9月10日 进入[江西](./jiangxi/README.md)
+2020年9月10日 进入[江西](./jiangxi/README.md)
 
-9月9日 进入[福建](./fujian/README.md)
+2020年9月9日 进入[福建](./fujian/README.md)
 
-9月6日 进入[安徽](./anhui/README.md)
+2020年9月6日 进入[安徽](./anhui/README.md)
 
-9月4日 进入[浙江](./zhejiang/README.md)
+2020年9月4日 进入[浙江](./zhejiang/README.md)
 
-9月2日 进入[江苏](./jiangsu/README.md)
+2020年9月2日 进入[江苏](./jiangsu/README.md)
 
-9月2日 进入上海
+2020年9月2日 进入上海
 
 ![上海](shanghai.jpg)
 
-9月1日 进入[黑龙江省](./heilongjiang/README.md)
+2020年9月1日 进入[黑龙江省](./heilongjiang/README.md)
 
-9月1日 进入[吉林省](./jilin/README.md)
+2020年9月1日 进入[吉林省](./jilin/README.md)
 
-8月27日 进入[辽宁省](./liaoning/README.md)
+2020年8月27日 进入[辽宁省](./liaoning/README.md)
 
-8月24日 进入[内蒙古自治区](./neimenggu/README.md)
+2020年8月24日 进入[内蒙古自治区](./neimenggu/README.md)
 
-8月23日 进入[山西省](./shanxi/README.md)
+2020年8月23日 进入[山西省](./shanxi/README.md)
 
-8月22日 进入[河北省](./hebei/README.md)
+2020年8月22日 进入[河北省](./hebei/README.md)
 
-8月21日 天津
+2020年8月21日 天津
 
 天津之眼
 
 ![天津](tianjin.jpeg)
 
-8月20日 北京
+2020年8月20日 北京
 
 天坛
 

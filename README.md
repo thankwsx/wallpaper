@@ -16,7 +16,7 @@
 
 宁夏
 
-青海
+2022年10月30日 进入[青海](./qinghai/README.md)
 
 2022年8月5日 进入[甘肃](./gansu/README.md)
 

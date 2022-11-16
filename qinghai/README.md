@@ -14,11 +14,25 @@ http://www.qinghai.gov.cn/
 
 > 上次闹了个笑话，将西宁和南宁搞混了。丢人，简直是丢人。所以这次挑选地方不敢进城了，选了西宁往青海湖的一个必经之路——拉脊山，也因为这个名字也挺搞笑的。据说景色不错，可惜人们往往只知道青海湖，而忽略了路途中的美景。且大家都说拉脊山是黄土高原和青藏高原的分界线。
 
-海东市
+![](xining.jpeg)
 
-海南州
+海东市 haidong 2022-11-13 瞿昙寺 https://www.ccmapp.cn/news/detail?id=151f1d62-9528-4600-ba46-b5d7396b6b9d&categoryid=&categoryname=%E6%9C%80%E6%96%B0%E8%B5%84%E8%AE%AF
 
-海北州
+> 西北小故宫之称，汉藏结合的寺院。已完成了数字化壁画
+
+![](haidong.jpeg)
+
+海南州 hainan 2022-11-15 龙羊湖 https://touch.travel.qunar.com/comment/10160660321
+
+> 本来找了个日月山，和日月潭挺般配，后来发现好像搞了乌龙。日月山是西宁下面的县的，于是看了地图上还有一个龙羊湖。原来黄河也可以是碧蓝碧蓝的。
+
+![](/Volumes/Extreme SSD/self/wallpaper/qinghai/hainan.jpeg)
+
+海北州 haibei 2022-11-16 金银滩 https://m.thepaper.cn/newsDetail_forward_17629082
+
+> 海北，金银滩，也是我国第一个核武器试验场所在地，221厂，第一机密，有些事连在那里工作的人都不知道。30多年从地图上消失。
+
+![](/Volumes/Extreme SSD/self/wallpaper/qinghai/haibei.jpeg)
 
 海西州
 

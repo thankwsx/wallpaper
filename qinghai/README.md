@@ -34,7 +34,11 @@ http://www.qinghai.gov.cn/
 
 ![](/Volumes/Extreme SSD/self/wallpaper/qinghai/haibei.jpeg)
 
-海西州
+海西州 haixi 2022-12-06 察尔汗盐湖 http://moorworld.com/?p=11719
+
+> 这个盐湖没有茶卡盐湖有名，主要是不是白色的，够不上天空之境。但是看起来绿色也挺不错的，而且这个盐湖比茶卡那个要大很多倍。而且估计人也不会很多。
+
+ ![](haixi.jpeg)
 
 黄南州
 

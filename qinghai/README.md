@@ -40,7 +40,11 @@ http://www.qinghai.gov.cn/
 
  ![](haixi.jpeg)
 
-黄南州
+黄南州 huangnan 2022-12-22 坎布拉 https://k.sina.com.cn/article_2643734600_p9d94304800100p5bm.html?from=travel#p=1
+
+> 坎布拉国家森林公园，青海丹霞地貌，景点未大规模开发，因为的确需要钱，以及当地人烟本来就稀少吧。同样面积人口只有东部地区的十分之一都不到的感觉。
+
+![](huangnan.jpeg)
 
 果洛州
 

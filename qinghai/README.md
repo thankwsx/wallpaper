@@ -46,7 +46,11 @@ http://www.qinghai.gov.cn/
 
 ![](huangnan.jpeg)
 
-果洛州
+果洛州 guoluo 2022-12-22 阿尼玛卿 http://k.sina.com.cn/article_6303322687_177b5123f00100llqq.html?wm=3049_0032
+
+> 四大藏区神山之一，位于黄河源区域，根据雪线变化了解全球气温变化趋势。
+
+![](guoluo.jpeg)
 
 玉树州
 

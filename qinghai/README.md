@@ -52,5 +52,9 @@ http://www.qinghai.gov.cn/
 
 ![](guoluo.jpeg)
 
-玉树州
+玉树州 yushu 2022-12-23 尕尔寺 https://www.bilibili.com/video/BV1XZ4y1372F/
+
+> 玉树州真是一个神奇的地方，三江源，神秘的藏区，不收门票的景点。充满神秘色彩。尕尔寺，建造在悬崖上的神秘寺庙。
+
+![](yushu.jpeg)
 

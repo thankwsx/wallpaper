@@ -20,7 +20,7 @@ https://www.nx.gov.cn/
 
 > 很巧，马上要去宁夏游玩，对这里的景点特别留意了一下，沙湖，曾被评为我国十大航拍地标之一。沙漠和湖水同框出现。
 
-![](D:\self\wallpaper\ningxia\shizuishan.jpeg)
+![](shizuishan.jpeg)
 
 吴忠市
 

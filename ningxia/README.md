@@ -16,7 +16,11 @@ https://www.nx.gov.cn/
 
 ![](yinchuan.jpg)
 
-石嘴山市
+石嘴山市 shizuishan 2023-01-05 沙湖 https://www.sohu.com/a/475842451_351047
+
+> 很巧，马上要去宁夏游玩，对这里的景点特别留意了一下，沙湖，曾被评为我国十大航拍地标之一。沙漠和湖水同框出现。
+
+![](D:\self\wallpaper\ningxia\shizuishan.jpeg)
 
 吴忠市
 

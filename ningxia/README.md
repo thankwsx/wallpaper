@@ -22,8 +22,30 @@ https://www.nx.gov.cn/
 
 ![](shizuishan.jpeg)
 
-吴忠市
+吴忠市 wuzhong 2023-01-06 青铜峡大峡谷 https://k.sina.com.cn/article_2989040942_pb229252e00100nzni.html?from=travel#p=16
 
-固原市
+> 黄河上游最后一道十余公里长的峡谷，旁立有大禹造像，还有108座塔，等边三角形。
 
-中卫市
+![](wuzhong.jpeg)
+
+![](wuzhong2.jpeg)
+
+固原市 guyuan 2023-01-06 火石寨 http://www.nxnews.net/zt/2020/2020nxlc/2020mlnx/202003/t20200323_6644479.html
+
+https://rmh.pdnews.cn/Pc/ArtInfoApi/article?id=9604570
+
+> 国家地质公园，火石寨。七彩丹霞。两座山峰之间的栈桥挺吓人啊。须弥山石窟的大佛据说大小仅次于乐山大佛，比龙门石窟还大啊。
+
+![](guyuan.jpeg)
+
+![](guyuan2.jpeg)
+
+中卫市 zhongwei 2023-01-06 沙坡头 https://www.sohu.com/a/386339457_114988
+
+https://www.thepaper.cn/newsDetail_forward_10951068
+
+> 独特的景观，沙漠、黄河、高山、绿洲，集于一处，还有那沙漠中的孤独的星星酒店，还没去就想去。
+
+![](zhongwei.jpeg)
+
+![](zhongwei2.jpeg)

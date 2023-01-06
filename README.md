@@ -14,7 +14,7 @@
 
 新疆
 
-宁夏
+2022年12月25日 进入[宁夏](./ningxia/README.md)
 
 2022年10月30日 进入[青海](./qinghai/README.md)
 

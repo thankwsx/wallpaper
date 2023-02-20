@@ -12,7 +12,7 @@
 
 香港
 
-新疆
+2023年1月30日 进入[新疆](./xinjiang/README.md)
 
 2022年12月25日 进入[宁夏](./ningxia/README.md)
 

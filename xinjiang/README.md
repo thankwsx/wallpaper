@@ -32,7 +32,11 @@ http://www.xinjiang.gov.cn/
 
 ![](aletai.jpeg)
 
-克拉玛依市
+克拉玛依市 kelamayi 2023-02-26 魔鬼城 https://k.sina.cn/article_1929590785_p7303380102701313n.html?from=photo
+
+> 这个地方不想多说。魔鬼城，不是有多恐怖，而是指这里的风口像鬼哭狼嚎。
+
+![克拉玛依](kelamayi.jpg)
 
 博尔塔拉蒙古自治州
 

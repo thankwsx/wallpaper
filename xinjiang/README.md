@@ -38,7 +38,11 @@ http://www.xinjiang.gov.cn/
 
 ![克拉玛依](kelamayi.jpg)
 
-博尔塔拉蒙古自治州
+博尔塔拉蒙古自治州 boertala 2023-03-02 赛里木湖 https://500px.com/search?q=%E8%B5%9B%E9%87%8C%E6%9C%A8%E6%B9%96&type=photos
+
+> 大西洋最后一滴泪水，海拔2000多米的高原湖泊，蓝冰，收费景点。是美。从500px下载一张图片，其他精美的图片都要获取版权，还是不随便粘贴了。
+
+![博尔塔拉](boertala.webp)
 
 昌吉回族自治州
 

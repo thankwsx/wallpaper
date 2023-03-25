@@ -44,7 +44,11 @@ http://www.xinjiang.gov.cn/
 
 ![博尔塔拉](boertala.webp)
 
-昌吉回族自治州
+昌吉回族自治州 changji 2023-03-25 天山天池 http://www.xinjiangyou.cn/raiders/show_1.html
+
+> 昌吉行政区划很奇怪，整个自治州分成两段，中间是乌鲁木齐。天山天池又在东侧的阜康市。天池又称瑶池。其实现在看来没那么遥远。
+
+![天山天池](changji.jpg)
 
 哈密市
 

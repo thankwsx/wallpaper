@@ -50,7 +50,11 @@ http://www.xinjiang.gov.cn/
 
 ![天山天池](changji.jpg)
 
-哈密市
+哈密市 hami 2023-03-25 魔鬼城 https://tw.trip.com/travel-guide/attraction/hami/hami-monster-city-82499/
+
+> 雅丹地貌的魔鬼城，在新疆真是到处都是的感觉。不知道西非大沙漠是不是也是如此。哈密的魔鬼城没有景交，都得自驾前往，也是很期待。哈密瓜不知道是不是这里的特产？
+
+![哈密](hami.jpg)
 
 吐鲁番市
 

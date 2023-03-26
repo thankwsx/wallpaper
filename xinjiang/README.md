@@ -56,7 +56,11 @@ http://www.xinjiang.gov.cn/
 
 ![哈密](hami.jpg)
 
-吐鲁番市
+吐鲁番市 tulufan 2023-03-26 火焰山 https://baike.baidu.com/tashuo/browse/content?id=62556134269bac4116010ebc
+
+> 恕我肤浅了，直接跳过其他历史古迹，跳过葡萄，直奔西游记相关主题——火焰山。据说这里夏天真的很热，晚上都睡屋顶，看满天繁星，也的确勾起夏天去玩玩的心。这景点据说还有一个描述西游记和火焰山的地宫。
+
+![火焰山](tulufan.webp)
 
 巴音郭楞蒙古自治州
 

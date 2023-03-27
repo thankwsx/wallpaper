@@ -68,9 +68,17 @@ http://www.xinjiang.gov.cn/
 
 ![楼兰古城](bayinguoleng.jpg)
 
-阿克苏地区
+阿克苏地区 akesu 2023-03-26 天山神秘大峡谷 https://k.sina.com.cn/article_7480117239_1bdd987f700100waol.html
 
-克孜勒苏柯尔克孜自治州
+> 这红色的山，才真是火焰山啊。可以进入内部，恍如火星，虽然也并没有去过火星。
+
+![神秘大峡谷](akesu.jpg)
+
+克孜勒苏柯尔克孜自治州 kezile 2023-03-27 天门 https://www.sohu.com/a/619344669_121608709
+
+> 其实我国的最西端，不是喀什，而是克州。
+
+![天门](kezile.jpeg)
 
 喀什地区
 

@@ -80,7 +80,11 @@ http://www.xinjiang.gov.cn/
 
 ![天门](kezile.jpeg)
 
-喀什地区
+喀什地区 kashi 2023-03-28 喀什老城 https://zhuanlan.zhihu.com/p/514999652
+
+> 克州是最西面，但城市的话，恐怕要算喀什是最西边的城市了。喀什老城，充满绿色。看到有说六角砖和四角砖的区别，倒很想去看看了。
+
+![喀什老城](kashi.jpg)
 
 和田地区
 

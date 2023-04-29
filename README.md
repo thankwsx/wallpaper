@@ -10,7 +10,11 @@
 
 澳门
 
-香港
+2023年4月29日 进入香港
+
+https://www.youtube.com/watch?v=gMWs24wMILA
+
+![天坛大佛](xianggang.jpeg)
 
 2023年1月30日 进入[新疆](./xinjiang/README.md)
 

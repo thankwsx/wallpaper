@@ -8,7 +8,11 @@
 
 台湾
 
-澳门
+2023年5月1日 进入澳门
+
+https://itf.mafengwo.cn/client/article.php/info/?id=220030
+
+![澳门](aomen.jpeg)
 
 2023年4月29日 进入香港
 

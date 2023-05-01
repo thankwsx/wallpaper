@@ -10,7 +10,11 @@
 
 
 
-台北市 taibei
+台北市 taibei 2023-05-01 台北故宫博物院 https://nchdb.boch.gov.tw/assets/overview/culturalLandscape/20220526000001
+
+> 看图片，地方不是很大的样子，藏品大多来自70多年前的北京故宫，有生之年要去看看系列。
+
+![台北](taibei.jpg)
 
 新北市 xinbei
 

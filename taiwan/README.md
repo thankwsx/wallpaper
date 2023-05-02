@@ -22,7 +22,11 @@
 
 ![新北](xinbei.jpg)
 
-桃园市 taoyuan
+桃园市 taoyuan 2023-05-02 草漯沙丘 https://www.ntdtv.com.tw/b5/20211008/video/306216.html?%E6%8E%A2%E7%B4%A2%E5%8F%B0%E7%89%88%E6%92%92%E5%93%88%E6%8B%89%E6%B2%99%E6%BC%A0%20%E8%B5%B0%E8%A8%AA%E8%8D%89%E6%BC%AF%E6%B2%99%E4%B8%98%E5%9C%B0%E6%99%AF%E5%B1%95%E7%A4%BA%E9%A4%A8
+
+> 感觉地方小，没什么磅礴的景观，只是一些沿海地质公园类。海边的沙子多到形成沙丘，也算是一个小特色了。
+
+![桃园](taoyuan.jpg)
 
 台中市 taizhong
 

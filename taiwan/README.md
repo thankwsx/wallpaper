@@ -34,7 +34,11 @@
 
 ![台中](taizhong.jpg)
 
-台南市 tainan
+台南市 tainan 2023-06-13 七股盐山 https://lorrin3021mw.pixnet.net/blog/post/460622609-%E5%AF%93%E6%95%99%E6%96%BC%E6%A8%82%E7%9A%84%E8%A6%AA%E5%AD%90%E5%A5%BD%E5%8E%BB%E8%99%95%E3%80%82%E5%8F%B0%E5%8D%97%E5%B8%82%E4%B8%83%E8%82%A1%E5%8D%80%E4%B8%83%E8%82%A1%E9%B9%BD
+
+> 感觉有很多的人文景观，建筑、老房子、博物馆什么的，自然景观都比较小巧，盐山这个虽然也很小巧，对我也算一个新奇吧。
+
+![](tainan.jpeg)
 
 高雄市 gaoxiong
 

@@ -40,7 +40,11 @@
 
 ![](tainan.jpeg)
 
-高雄市 gaoxiong
+高雄市 gaoxiong 2023-06-18 西子湾 https://touch.travel.qunar.com/comment/4758851
+
+> 壮阔的海景，号称台湾八景之一。对于高雄名称的由来其实有学习到。日本人占领了50年，的确改变了不少。还有地下隧道群等等，打狗博物馆等等。
+
+![](G:\self\wallpaper\taiwan\gaoxiong.jpg)
 
 基隆市 jilong
 

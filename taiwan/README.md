@@ -46,7 +46,11 @@
 
 ![](G:\self\wallpaper\taiwan\gaoxiong.jpg)
 
-基隆市 jilong
+基隆市 jilong 2023-06-19 正滨渔港 https://foncc.com/archives/15855
+
+> 其实简简单单涂个乱七八糟的颜色，亮丽的颜色，景色就起来了。这就是我看完这个打卡点的感受，模仿威尼斯彩色岛的风格，就是规模小了点。
+
+![](G:\self\wallpaper\taiwan\jilong.jpg)
 
 新竹市 xinzhu
 

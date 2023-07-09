@@ -52,11 +52,21 @@
 
 ![](G:\self\wallpaper\taiwan\jilong.jpg)
 
-新竹市 xinzhu
+新竹市 xinzhu 2023-07-09 都城隍庙 https://www.sundaytour.com.tw/zh-tw/attractions/detail.php?pid=7642
+
+> 全台级别最高的城隍庙，每年农历七月初一会有盛大的仪式。小吃一条街也不错。
+
+![](G:\self\wallpaper\taiwan\xinzhu.jpg)
+
+
 
 嘉义市 jiayi
 
-新竹县 xinzhuxian
+新竹县 xinzhuxian 2023-07-09 The One南园人文客栈 https://udn.com/news/story/7266/6903417
+
+> 颇有江南水乡的特色，看戏、品茗一天包食宿还真不便宜。每天的访客还有限额。不过查了下，不是新竹市，是新竹县。
+
+![](G:\self\wallpaper\taiwan\xinzhuxian.jpg)
 
 苗栗县 miaoli
 

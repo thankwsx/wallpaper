@@ -60,7 +60,11 @@
 
 
 
-嘉义市 jiayi
+嘉义市 jiayi 2023-07-11 二二八纪念碑 https://zh.wikipedia.org/zh-tw/%E5%98%89%E7%BE%A9%E5%B8%82%E4%BA%8C%E4%BA%8C%E5%85%AB%E7%B4%80%E5%BF%B5%E5%85%AC%E5%9C%92%E4%BA%8C%E4%BA%8C%E5%85%AB%E7%B4%80%E5%BF%B5%E7%A2%91
+
+> 台湾绕不过的二二八事件，嘉义是事件发生的主要地点，不知道再过个几十年，当时的人都不在了会怎么样。
+
+![](jiayi.JPG)
 
 新竹县 xinzhuxian 2023-07-09 The One南园人文客栈 https://udn.com/news/story/7266/6903417
 
@@ -76,7 +80,11 @@
 
 云林县 yunlin
 
-嘉义县 jiayixian
+嘉义县 jiayixian 2023-07-11 阿里山 https://taiwanhot.net/news/983156/%E5%BD%B1%EF%BC%8F%E9%98%BF%E9%87%8C%E5%B1%B1%E9%9A%99%E9%A0%82%E6%97%A5%E8%90%BD+%E7%B8%AE%E6%99%82%E6%86%BE%E6%94%9D%E8%A7%80%E9%9B%B2%E7%80%91
+
+> 原来阿里山和日月潭不在一个地方，看来我对这块土地了解的也太少了啊。
+
+![](jiayixian.jpeg)
 
 屏东县 pingdong
 

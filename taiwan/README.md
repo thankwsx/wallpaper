@@ -44,19 +44,19 @@
 
 > 壮阔的海景，号称台湾八景之一。对于高雄名称的由来其实有学习到。日本人占领了50年，的确改变了不少。还有地下隧道群等等，打狗博物馆等等。
 
-![](G:\self\wallpaper\taiwan\gaoxiong.jpg)
+![](gaoxiong.jpg)
 
 基隆市 jilong 2023-06-19 正滨渔港 https://foncc.com/archives/15855
 
 > 其实简简单单涂个乱七八糟的颜色，亮丽的颜色，景色就起来了。这就是我看完这个打卡点的感受，模仿威尼斯彩色岛的风格，就是规模小了点。
 
-![](G:\self\wallpaper\taiwan\jilong.jpg)
+![](jilong.jpg)
 
 新竹市 xinzhu 2023-07-09 都城隍庙 https://www.sundaytour.com.tw/zh-tw/attractions/detail.php?pid=7642
 
 > 全台级别最高的城隍庙，每年农历七月初一会有盛大的仪式。小吃一条街也不错。
 
-![](G:\self\wallpaper\taiwan\xinzhu.jpg)
+![](xinzhu.jpg)
 
 
 
@@ -66,7 +66,7 @@
 
 > 颇有江南水乡的特色，看戏、品茗一天包食宿还真不便宜。每天的访客还有限额。不过查了下，不是新竹市，是新竹县。
 
-![](G:\self\wallpaper\taiwan\xinzhuxian.jpg)
+![](xinzhuxian.jpg)
 
 苗栗县 miaoli
 

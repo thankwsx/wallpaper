@@ -72,7 +72,11 @@
 
 ![](xinzhuxian.jpg)
 
-苗栗县 miaoli
+苗栗县 miaoli 2023-07-12 白沙屯拱天宫 https://newtalk.tw/news/view/2020-02-27/373165
+
+> 海边的妈祖，宗教信仰，苗栗国。台湾北部还是中部的城市？已经不那么重要了。
+
+![](miaoli.JPG)
 
 彰化县 zhanghua
 

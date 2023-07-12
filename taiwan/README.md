@@ -78,7 +78,11 @@
 
 ![](miaoli.JPG)
 
-彰化县 zhanghua
+彰化县 zhanghua 2023-07-12 大佛风景区 https://zh.wikipedia.org/zh-cn/%E5%BD%B0%E5%8C%96%E7%B8%A3
+
+> 台湾的东西感觉都是小小的，这个大佛也是。彰化是台湾人口最多的县级行政区。
+
+![](zhanghua.jpg)
 
 南投县 nantou
 

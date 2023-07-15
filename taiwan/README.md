@@ -84,7 +84,11 @@
 
 ![](zhanghua.jpg)
 
-南投县 nantou
+南投县 nantou 2023-07-15 日月潭 https://smiletaiwan.cw.com.tw/article/2426
+
+> 日月潭的知名度毋庸置疑。
+
+![](nantou.webp)
 
 云林县 yunlin
 

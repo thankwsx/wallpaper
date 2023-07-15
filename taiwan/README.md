@@ -90,7 +90,11 @@
 
 ![](nantou.webp)
 
-云林县 yunlin
+云林县 yunlin 2023-07-15 草岭风景区 https://www.youtube.com/watch?v=f0tHR0jFPuw
+
+> 水帘洞，峭壁雄风，好多各色各样的步道，还是很不错的自然风景。
+
+![](yunlin.jpg)
 
 嘉义县 jiayixian 2023-07-11 阿里山 https://taiwanhot.net/news/983156/%E5%BD%B1%EF%BC%8F%E9%98%BF%E9%87%8C%E5%B1%B1%E9%9A%99%E9%A0%82%E6%97%A5%E8%90%BD+%E7%B8%AE%E6%99%82%E6%86%BE%E6%94%9D%E8%A7%80%E9%9B%B2%E7%80%91
 

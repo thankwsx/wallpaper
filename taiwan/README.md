@@ -102,7 +102,11 @@
 
 ![](jiayixian.jpeg)
 
-屏东县 pingdong
+屏东县 pingdong 2023-07-18 垦丁国家公园 https://zh.wikipedia.org/zh-cn/%E5%A2%BE%E4%B8%81%E5%9C%8B%E5%AE%B6%E5%85%AC%E5%9C%92
+
+> 之前亲戚姐姐去玩的时候好像听说去过这里，果然是宝岛最南端的海滩。可以玩的地方还挺多的。
+
+![](pingdong.jpg)
 
 宜兰县 yilan
 

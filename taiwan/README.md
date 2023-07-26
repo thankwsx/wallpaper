@@ -114,7 +114,11 @@
 
 ![](yilan.jpg)
 
-花莲县 hualian
+花莲县 hualian 2023-07-26 太鲁阁国家公园 https://www.arukikata.co.jp/web/directory/item/105518/
+
+> 台湾东部山林比较多，看地图玉山国家公园比较明显，不过太鲁阁这个名字比较容易让人有好感，所以我就选这个啦。花莲县的人口是比较少的，旅游人数已经远远超过了。
+
+![](hualian.jpeg)
 
 台东县 taidong
 

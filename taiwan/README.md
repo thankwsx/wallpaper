@@ -120,7 +120,11 @@
 
 ![](hualian.jpeg)
 
-台东县 taidong
+台东县 taidong 2023-07-28 绿岛 https://www.tsta-bj.com/Article.aspx?sNo=04005635
+
+> 台湾是宝岛，台湾的离岛也很精彩。绿岛和澳洲的绿岛有点撞名。有机场15分钟即可抵达。海洋景色很明显。勾起了我想去深海岛屿的心。
+
+![](taidong.jpg)
 
 澎湖县 penghu
 

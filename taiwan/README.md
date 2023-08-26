@@ -131,7 +131,11 @@
 
 ![](taidong.jpg)
 
-澎湖县 penghu
+澎湖县 penghu 2023-08-26 蓝洞 https://www.taiwanviptravel.com/penghu/
+
+> 某旅行社的页面，也算系统的从吃住玩几个方面了解了澎湖好的地方。很想知道，海岛上的人每天跟海在一起，也会过腻了吗？
+
+![](penghu.jpeg)
 
 金门 jinmen
 

@@ -120,7 +120,11 @@
 
 ![](hualian.jpeg)
 
-台东县 taidong
+台东县 taidong 2023-08-26 绿岛乡 https://www.zztaitung.com/6557/green-island
+
+> 岛外有岛，绿岛虽然和大堡礁有点名字上的纠葛，但是作为很有特色的小岛，四分之三的土地保有原生态，物资靠大岛采购，还是很好玩的，景点都没有名字。据说在大岛的滨海公园还可以隐约看见。
+
+![](taidong.jpeg)
 
 澎湖县 penghu
 

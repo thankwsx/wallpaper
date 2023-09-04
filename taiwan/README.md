@@ -137,6 +137,10 @@
 
 ![](penghu.jpeg)
 
-金门 jinmen
+金门 jinmen 2023-09-04 建功屿 https://grace5228blog.com/blog/post/jiangong-island
+
+> 这些地方不知道什么时候可以去参观游览一番。小小的屿，退潮与涨潮时差别还是非常大的，因为错过时间而被困在屿上的事情还是非常容易发生的，也太好笑了。这四个巨型人塑也很有地方产业特色。
+
+![](jinmen.jpg)
 
 马祖 mazu

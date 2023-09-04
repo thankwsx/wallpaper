@@ -143,4 +143,6 @@
 
 ![](jinmen.jpg)
 
+建功屿还有一个实时4k的频道，这个也很有意思啊。 https://www.youtube.com/watch?v=uh_yNAE01w8
+
 马祖 mazu
